@@ -1,0 +1,4 @@
+baseURL = 'https://kidselectricvehicle.com'
+languageCode = 'en-us'
+title = 'Kids Electric Vehicle'
+theme = "congo"
