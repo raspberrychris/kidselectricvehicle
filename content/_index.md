@@ -252,62 +252,30 @@ Get your kids their own vehicle with the Best Choice Products Kids 12V Ride On T
 ---
 
  
-## [Kidzone Diy Sticker Race Car 6V Kids Toy](/Kidzone-Diy-Sticker-Race-Car-6V-Kids-Toy)
-[![Kidzone-Diy-Sticker-Race-Car-6V-Kids-Toy](<https://images-na.ssl-images-amazon.com/images/I/81BzO5uIAdL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Electric-Vehicle-Control-ASTM-Certified/dp/B08BL2HFY6/?tag=kidselectricvehicle-20>)[![Kidzone-Diy-Sticker-Race-Car-6V-Kids-Toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Electric-Vehicle-Control-ASTM-Certified/dp/B08BL2HFY6/?tag=kidselectricvehicle-20>)
-
-### Product Description 
-
-
-
-### Our Rating For This Product
-
-
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
-> 
-
-
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
-
----
-
- 
 ## [Kid Trax Cat Toddler Quad Ride On Toy](/Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy)
 [![Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy](<https://images-na.ssl-images-amazon.com/images/I/81eYYJXuD-S._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Trax-Toddler-Battery-KT1575AZ/dp/B087N12241/?tag=kidselectricvehicle-20>)[![Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Trax-Toddler-Battery-KT1575AZ/dp/B087N12241/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the driveway, backyard, or sidewalk. Fits one rider, ages 18 – 30 months. Authentic yellow and black CAT styling for construction fun. Working headlights and included toy helmet add to the playtime fun. Goes forward at 1.5 MPH. Foot pedal acceleration provides a lifelike driving experience. Includes 6-volt rechargeable battery and charger so the fun never has to stop for long
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kid Trax                     |
+|-----------------------|------------------------------|
+| Material              | Plastic                      |
+| Size                  | 1.5-3 Years Old              |
+| Item Weight           | 6 Kilograms                  |
+| Item Dimensions LxWxH | 26.77 x 15.75 x 17.72 inches |
+| Sub Brand             | CAT Quad                     |
 
 ### Customers Say about this product
 
-> 
-
-
+> It was bought for a 2 yr old. It has a gas pedal which is so adorable and my granddaughter loves it
 
 ### Pros and Cons
 
@@ -317,10 +285,7 @@ Get your kids their own vehicle with the Best Choice Products Kids 12V Ride On T
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Best Choice Products 12V Kids Ride On Truck](/Best-Choice-Products-12V-Kids-Ride-On-Truck)
 [![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://images-na.ssl-images-amazon.com/images/I/71823o+AgRS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Remote-Control-Speeds-Suspension-Cypressshop/dp/B01N7B2Q4J/?tag=kidselectricvehicle-20>)[![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Remote-Control-Speeds-Suspension-Cypressshop/dp/B01N7B2Q4J/?tag=kidselectricvehicle-20>)
