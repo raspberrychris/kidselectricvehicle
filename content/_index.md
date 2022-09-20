@@ -118,22 +118,25 @@ Drive the Ride On Electric Bumper Car for Kids & Toddlers! Race around in style 
 
 ### Product Description 
 
-
+The Peg Perego John Deere Ground Force Tractor with Trailer is a replica of the real tractor John Deere, just for kids. With a 2-speed transmission and reverse, this realistic looking tractor also features an accelerator pedal with automatic brakes, farm tractor wheels that provide traction on grass, dirt, gravel or pavement and an extra large stake-side trailer. The adjustable seat with flip-up armrests ensures that your child's ride will be comfortable and enjoyable from beginning to end.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Peg Perego                |
+|-----------------------|---------------------------|
+| Material              | Plastic                   |
+| Size                  | Miniature                 |
+| Item Weight           | 50 Pounds                 |
+| Item Dimensions LxWxH | 24.5 x 26.5 x 67.5 inches |
+| Sub Brand             | John Deere                |
 
 ### Customers Say about this product
 
-> 
-
-
+> This is brilliant my grandson loves this
 
 ### Pros and Cons
 
