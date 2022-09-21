@@ -10,6 +10,8 @@ We have checked out all of the the best Kids Electric Vehicles so you can choose
 
 Hi welcome to [Kids Electric Vehicle](https://kidselectricvehicle.com) 🏎  🚜  🏍.
 
+[![kids-electric-cars](/kids-electric-toy-cars.png)]
+
 ## [Best Choice Products 12V Kids Ride On Truck - (Our Top Pick for 2022!)](/Best-Choice-Products-12V-Kids-Ride-On-Truck)
 [![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://images-na.ssl-images-amazon.com/images/I/819EixX48RS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B07YC4VCYH/?tag=kidselectricvehicle-20>)[![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B07YC4VCYH/?tag=kidselectricvehicle-20>)
 
