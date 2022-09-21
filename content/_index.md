@@ -881,28 +881,31 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 
 ---
- 
+
 ## [Costzon 2-Seater Ride On Truck 12V Battery Powered](/Costzon-2-Seater-Ride-On-Truck-12V-Battery-Powered)
 [![Costzon-2-Seater-Ride-On-Truck-12V-Battery-Powered](<https://images-na.ssl-images-amazon.com/images/I/61CLaspB6xL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Costzon-2-Seater-Battery-Electric-Suspension/dp/B08FMQ6CM4/?tag=kidselectricvehicle-20>)[![Costzon-2-Seater-Ride-On-Truck-12V-Battery-Powered](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Costzon-2-Seater-Battery-Electric-Suspension/dp/B08FMQ6CM4/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Costzon electric ride-on truck has 2 seats for endless fun, so kids can share driving fun together. It is equipped with safety belt and handrail, intended to provide protection for kids. The higher bearing capacity leaves you no worry about driving safety as well. This remote control/battery operated truck enable your kids to enjoy a realistic driving experience by means of power button, forward/reverse switch, high/low speed switch (2 forward speeds & 2 reverse speeds) and foot pedal
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Costzon                   |
+|-----------------------|---------------------------|
+| Material              | Polypropylene, Iron       |
+| Item Weight           | 52 Pounds                 |
+| Item Dimensions LxWxH | 48.5 x 31.5 x 31.5 inches |
+| Assembly Required     | Yes                       |
+| Sub Brand             | (-)                       |
 
 ### Customers Say about this product
 
-> 
-
-
+> I finally caved and got this for my 5 & 3 year old and they LOVE it! My kids are big for their ages and both fit together in the car comfortably. 
 
 ### Pros and Cons
 
@@ -912,32 +915,28 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Value Box Electric Remote Control Truck Kids Toddler](/Value-Box-Electric-Remote-Control-Truck-Kids-Toddler)
 [![Value-Box-Electric-Remote-Control-Truck-Kids-Toddler](<https://images-na.ssl-images-amazon.com/images/I/71H1RB65ekL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/VALUE-BOX-Motorized-Childrens-Realistic/dp/B07T7NNRWH/?tag=kidselectricvehicle-20>)[![Value-Box-Electric-Remote-Control-Truck-Kids-Toddler](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/VALUE-BOX-Motorized-Childrens-Realistic/dp/B07T7NNRWH/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The VALUE BOX Electric Remote Control Truck is the perfect gift for your kids! With a parent controller, this car comes with 3 speeds - high, medium and low. The Maximum speed is 2.5 mph, safe for your little ones. The kids can drive it by foot pedal and steering wheel. It also comes with easy forward and reverse button as well as seat belts.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand | VALUE BOX                 |
+|-------|---------------------------|
+| Size  | 37.8 x 24.4 x 19.5 inches |
 
 ### Customers Say about this product
 
-> 
-
-
+> Love it my granddaughter loves it that she tries to drive it in the house
 
 ### Pros and Cons
 
@@ -947,32 +946,29 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Joymor Ride On Truck  Remote Control 4](/Joymor-Ride-On-Truck--Remote-Control-4)
 [![Joymor-Ride-On-Truck--Remote-Control-4](<https://images-na.ssl-images-amazon.com/images/I/81+1ehqZa1L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/JOYMOR-Control-Battery-Headlight-Backward/dp/B08GLXXF7T/?tag=kidselectricvehicle-20>)[![Joymor-Ride-On-Truck--Remote-Control-4](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/JOYMOR-Control-Battery-Headlight-Backward/dp/B08GLXXF7T/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+JOYMOR Ride-on Truck is the perfect toy for children who love playing with cars. This battery operated kids car has a realistic driving experience for more fun, and can be controlled by either remote control or manual. The remote control allows three adjustable speeds, parking, forward and reverse modes functionally - this is to ensure that your kid can drive the car himself with hand and foot coordination. If he feels tired or wants to stop, he can just step on the pedal and it will stop freely
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand    | JOYMOR                    |
+|----------|---------------------------|
+| Material | Rubber                    |
+| Size     | 39. 4x 26. 3x26. 3 inches |
 
 ### Customers Say about this product
 
-> 
-
-
+> This is perfect for my 12 month old. The only slight problem I the remote doesn’t turn the tires as much as manually does but it’s a great product!
 
 ### Pros and Cons
 
@@ -982,32 +978,32 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Kid Trax Nickelodeon'S Paw Patrol Toddler Quad Electric](/Kid-Trax-Nickelodeon'S-Paw-Patrol-Toddler-Quad-Electric)
 [![Kid-Trax-Nickelodeon'S-Paw-Patrol-Toddler-Quad-Electric](<https://images-na.ssl-images-amazon.com/images/I/61JNeFlPi6L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Trax-Patrol-Toddler-Ride/dp/B07WHMM5NR/?tag=kidselectricvehicle-20>)[![Kid-Trax-Nickelodeon'S-Paw-Patrol-Toddler-Quad-Electric](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Trax-Patrol-Toddler-Ride/dp/B07WHMM5NR/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+This Kid Trax Paw Patrol toddler quad electric ride-on toy features your child's favorite characters from Paw Patrol. The easy push button acceleration is simple for little ones to operate, and the max weight of 44 lbs. and 18-30 months age range will keep your child riding a long time! The rubber traction strip tires keep the ride smooth and steady, and the 6 volt rechargeable battery will last for hours of fun on the go!
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kid Trax                     |
+|-----------------------|------------------------------|
+| Material              | Plastic                      |
+| Size                  | 6 Volt                       |
+| Item Weight           | 12.38 Pounds                 |
+| Item Dimensions LxWxH | 26.33 x 16.11 x 18.86 inches |
+| Sub Brand             | PAW Patrol                   |
 
 ### Customers Say about this product
 
-> 
-
-
+> My grandson loves it but it startles him when he pushes the button to make it go, and there’s no way to slow it down to stop that.
 
 ### Pros and Cons
 
@@ -1017,32 +1013,30 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Playskool Bounce And Ride Active Toy Ride-On For](/Playskool-Bounce-And-Ride-Active-Toy-Ride-On-For)
 [![Playskool-Bounce-And-Ride-Active-Toy-Ride-On-For](<https://images-na.ssl-images-amazon.com/images/I/81cR6J8mCXL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Playskool-Poppin-Park-Bounce-Ride/dp/B006HPVHOA/?tag=kidselectricvehicle-20>)[![Playskool-Bounce-And-Ride-Active-Toy-Ride-On-For](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Playskool-Poppin-Park-Bounce-Ride/dp/B006HPVHOA/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Playskool Bounce and Ride Active Toy Ride-On for Toddlers 12 Months and Up, with Stationary Mode, Mus is an active toy for the youngest of kids. In two modes, the toy can be a stationary or a scooter. The music box can play silly sounds or music as kids bounce and ride around with the inflatable that comes with it.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Playskool                   |
+|-----------------------|-----------------------------|
+| Size                  | 6.06 x 19.13 x 15.13 inches |
+| Item Dimensions LxWxH | 19.29 x 5.91 x 14.96 inches |
+| Assembly Required     | No                          |
 
 ### Customers Say about this product
 
-> 
-
-
+> Cute and colorful toy for the little ones to scoot around on. The seat bounces like it should and plays various playful sounds when it being used.
 
 ### Pros and Cons
 
@@ -1052,32 +1046,30 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Razor Mx400 Dirt Rocket Ride On 24V Electric](/Razor-Mx400-Dirt-Rocket-Ride-On-24V-Electric)
 [![Razor-Mx400-Dirt-Rocket-Ride-On-24V-Electric](<https://images-na.ssl-images-amazon.com/images/I/71IJ+KNJvUL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Razor-Rocket-Electric-Motocross-Motorcycle/dp/B0156S5MUI/?tag=kidselectricvehicle-20>)[![Razor-Mx400-Dirt-Rocket-Ride-On-24V-Electric](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Rocket-Electric-Motocross-Motorcycle/dp/B0156S5MUI/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Razor MX400 is a powerful, variable-speed, chain-driven electric dirt bike for kids. It has a 250-watt motor that delivers speeds up to 14 MPH (22 km/h). With its foldable metal footpegs and 12" pneumatic knobby tires, it is perfect for riding on rough surfaces.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand             | Razor                  |
+|-------------------|------------------------|
+| Material          | Plastic, Rubber, Steel |
+| Item Weight       | 59 Pounds              |
+| Assembly Required | No                     |
 
 ### Customers Say about this product
 
-> 
-
-
+> Great motorcycle.  The only thing is that I think they can install a stronger motor
 
 ### Pros and Cons
 
@@ -1087,32 +1079,32 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [U Urideon Ride On Bumper Car For Kids](/U-Urideon-Ride-On-Bumper-Car-For-Kids)
 [![U-Urideon-Ride-On-Bumper-Car-For-Kids](<https://images-na.ssl-images-amazon.com/images/I/91Nr0VXfPQL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/URideon-Electric-Vehicle-Colorful-Flashing/dp/B09DHLL11X/?tag=kidselectricvehicle-20>)[![U-Urideon-Ride-On-Bumper-Car-For-Kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/URideon-Electric-Vehicle-Colorful-Flashing/dp/B09DHLL11X/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+With a spacious seat and safety belt, the u URideon Ride-on Bumper Car is safe, secure and comfortable. This bumper car has an inbuilt music system, colourful flashing lights, 360 degree spinning and fun bumper car experiences. Operated with a remote control or manual joysticks (supplied), this ride-on toy is perfect for children aged 3 to 6 years.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | U URideon                 |
+|-----------------------|---------------------------|
+| Material              | Plastic, Metal            |
+| Size                  | 25.4x 25.4x 17.7 inches   |
+| Item Weight           | 15.9 Pounds               |
+| Item Dimensions LxWxH | 25.4 x 25.4 x 17.7 inches |
+| Sub Brand             | U URideon                 |
 
 ### Customers Say about this product
 
-> 
-
-
+> My grandson is 2. I got it for his birthday. His parents strap him in and remotely drive him around, he’s laughing the entire time!
 
 ### Pros and Cons
 
@@ -1122,10 +1114,7 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Kid Trax Caterpillar Atv Toddler Ride On Toy](/Kid-Trax-Caterpillar-Atv-Toddler-Ride-On-Toy)
 [![Kid-Trax-Caterpillar-Atv-Toddler-Ride-On-Toy](<https://images-na.ssl-images-amazon.com/images/I/61SlPbhYI+L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Trax-Power-Battery-Powered-Ride/dp/B074N1Y5MZ/?tag=kidselectricvehicle-20>)[![Kid-Trax-Caterpillar-Atv-Toddler-Ride-On-Toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Trax-Power-Battery-Powered-Ride/dp/B074N1Y5MZ/?tag=kidselectricvehicle-20>)
