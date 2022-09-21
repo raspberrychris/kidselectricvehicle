@@ -1121,22 +1121,25 @@ With a spacious seat and safety belt, the u URideon Ride-on Bumper Car is safe, 
 
 ### Product Description 
 
-
+Little construction workers in training will love this authentically-styled CAT ATV, and it’s the perfect ride-on toy. This ride-on has realistic horn and engine sounds that add to the playtime experience. With LED headlights and foot pedal acceleration, your little one will feel like they are driving a real vehicle. The best part is that this toy can go in forward or reverse at 2.5 MPH, making it perfect for maneuvering through tight spaces. Comes with a
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kid Trax                    |
+|-----------------------|-----------------------------|
+| Material              | Plastic                     |
+| Size                  | 6 Volt                      |
+| Item Weight           | 24 Pounds                   |
+| Item Dimensions LxWxH | 34.75 x 24.5 x 31.75 inches |
+| Theme                 | Cat Atv                     |
 
 ### Customers Say about this product
 
-> 
-
-
+> My Grandson got this for his Birthday, very cute and he loves it, but the on switch has quit so for what it cost I don’t think it was worth the money.
 
 ### Pros and Cons
 
@@ -1146,11 +1149,8 @@ With a spacious seat and safety belt, the u URideon Ride-on Bumper Car is safe, 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kidzone Diy Sticker Race Car Twin-Motor 12V Kids](/Kidzone-Diy-Sticker-Race-Car-Twin-Motor-12V-Kids)
 [![Kidzone-Diy-Sticker-Race-Car-Twin-Motor-12V-Kids](<https://images-na.ssl-images-amazon.com/images/I/61fe48mduKL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Sticker-Twin-Motor-Electric-Bluetooth/dp/B09HH1N8LW/?tag=kidselectricvehicle-20>)[![Kidzone-Diy-Sticker-Race-Car-Twin-Motor-12V-Kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Sticker-Twin-Motor-Electric-Bluetooth/dp/B09HH1N8LW/?tag=kidselectricvehicle-20>)
 
