@@ -643,22 +643,25 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 
 ### Product Description 
 
-
+A new and improved (2018) version of the Radio Flyer, the Grow with Me Racer Kids Battery Powered Ride-On Toy offers three modes of riding: Adult Driven, Adult Correcting, and Child Driven. The car features a quick response remote control that gives better steering and better control to the car. Ride in style around the neighborhood while pushing to go or spinning in circles with arrow buttons.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Radio Flyer               |
+|-----------------------|---------------------------|
+| Material              | Plastic                   |
+| Item Weight           | 14.64 Pounds              |
+| Item Dimensions LxWxH | 29.2 x 22.5 x 19.5 inches |
+| Theme                 | Ride Ons                  |
+| Assembly Required     | Yes                       |
 
 ### Customers Say about this product
 
-> 
-
-
+> Purchased for my 8 month old nephew. He loves it. The remote didn’t work after a week but we received a free replacement quickly.
 
 ### Pros and Cons
 
@@ -668,32 +671,32 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Costzon Kids Atv 12V Battery Powered Electric Vehicle](/Costzon-Kids-Atv-12V-Battery-Powered-Electric-Vehicle)
 [![Costzon-Kids-Atv-12V-Battery-Powered-Electric-Vehicle](<https://images-na.ssl-images-amazon.com/images/I/71lrfcwrOLL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Costzon-Battery-Powered-Electric-Motorized/dp/B08K4HZKNM/?tag=kidselectricvehicle-20>)[![Costzon-Kids-Atv-12V-Battery-Powered-Electric-Vehicle](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Costzon-Battery-Powered-Electric-Motorized/dp/B08K4HZKNM/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Give your kids the ultimate driving experience with the Costzon Kids ATV. This electric vehicle is battery powered, so you can take it almost anywhere. The high-quality construction and safety features make it a great gift for any child who is ready to drive!
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Costzon               |
+|-----------------------|-----------------------|
+| Material              | Polypropylene, Iron   |
+| Size                  | 42" x25.5" x29"       |
+| Item Weight           | 36.5 Pounds           |
+| Item Dimensions LxWxH | 42 x 25.5 x 29 inches |
+| Assembly Required     | Yes                   |
 
 ### Customers Say about this product
 
-> 
-
-
+> As weather getting nice for outdoor, I got this sturdy atv for her to ride. The fact of color and speed of the toy, I feel very safe for little girl to ride on. The overall the assembly was quite easy.
 
 ### Pros and Cons
 
@@ -703,11 +706,8 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Peg Perego John Deere Gator Xuv Green](/Peg-Perego-John-Deere-Gator-Xuv-Green)
 [![Peg-Perego-John-Deere-Gator-Xuv-Green](<https://images-na.ssl-images-amazon.com/images/I/71u78Oo1eQL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Peg-Perego-Deere-Gator-Green/dp/B005WKWLEQ/?tag=kidselectricvehicle-20>)[![Peg-Perego-John-Deere-Gator-Xuv-Green](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Peg-Perego-Deere-Gator-Green/dp/B005WKWLEQ/?tag=kidselectricvehicle-20>)
 
@@ -717,18 +717,21 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 
 ### Our Rating For This Product
 
-
-
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Peg Perego            |
+|-----------------------|-----------------------|
+| Material              | Plastic               |
+| Size                  | 12                    |
+| Item Weight           | 61 Pounds             |
+| Item Dimensions LxWxH | 54 x 34.5 x 30 inches |
+| Sub Brand             | John Deere            |
 
 ### Customers Say about this product
 
-> 
-
-
+> The John Deere Gator XUV 550 is perfect for little helpers. The all-new, life-like rider will let them tool around the yard just like grandpa and dad. The accelerator has automatic brakes and it has two speeds plus reverse (2 1/2; 5; mph). There's also a second gear lockout for beginners. Knobby tread wheels provide traction on grass, dirt, gravel or pavement. This toy requires a 12V rechargeable battery and charger to run; weight
 
 ### Pros and Cons
 
@@ -738,32 +741,32 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Power Wheels Hot Wheels Jeep Wrangler Blue (12V)](/Power-Wheels-Hot-Wheels-Jeep-Wrangler-Blue-(12V))
 [![Power-Wheels-Hot-Wheels-Jeep-Wrangler-Blue-(12V)](<https://images-na.ssl-images-amazon.com/images/I/71Vwayd2vvL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Power-Wheels-Jeep-Wrangler-Blue/dp/B00IVDVX86/?tag=kidselectricvehicle-20>)[![Power-Wheels-Hot-Wheels-Jeep-Wrangler-Blue-(12V)](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Power-Wheels-Jeep-Wrangler-Blue/dp/B00IVDVX86/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Take the wheel of this rugged and ready-for-anything Jeep Wrangler with a cool Hot Wheels edition. This Power Wheels ride-on toy car for kids is designed for use on hard surfaces and grass, just like the grown-up versions! The 12V battery provides enough power for 5 mph (8 km/h) of max. speed in forward and 2.5 mph (4 km/h) of max. speed in reverse. The kid-sized seat is also comfortable and spacious.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Power Wheels          |
+|-----------------------|-----------------------|
+| Material              | Plastic               |
+| Item Weight           | 77.16 Pounds          |
+| Item Dimensions LxWxH | 47 x 30.5 x 33 inches |
+| Sub Brand             | Jeep                  |
+| Assembly Required     | Yes                   |
 
 ### Customers Say about this product
 
-> 
-
-
+> I bought it for my daughters and they very much liked it. Easy to assemble and use.
 
 ### Pros and Cons
 
@@ -773,32 +776,31 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Enyopro 12V Kids Electric Car Licensed Dodge Challenger](/Enyopro-12V-Kids-Electric-Car-Licensed-Dodge-Challenger)
 [![Enyopro-12V-Kids-Electric-Car-Licensed-Dodge-Challenger](<https://images-na.ssl-images-amazon.com/images/I/61vv-Y9hYNL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/ENYOPRO-Electric-Challenger-Suspension-Bluetooth/dp/B0B8RJ7D86/?tag=kidselectricvehicle-20>)[![Enyopro-12V-Kids-Electric-Car-Licensed-Dodge-Challenger](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/ENYOPRO-Electric-Challenger-Suspension-Bluetooth/dp/B0B8RJ7D86/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Give your kid the best in driving with this incredible Dodge Challenger ride-on car. With an appearance that's almost identical to the real thing, this cool kids electric car is loaded with realistic details. The headlights, car horn and other sounds will add to their excitement as they make their way around your home.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | ENYOPRO                      |
+|-----------------------|------------------------------|
+| Material              | Polypropylene, Iron, Plastic |
+| Item Weight           | 32 Pounds                    |
+| Item Dimensions LxWxH | 43.5 x 25.8 x 21.5 inches    |
+| Assembly Required     | Yes                          |
 
 ### Customers Say about this product
 
-> 
-
-
+> My son loves this! Came just in time for his 2nd birthday and he has not stopped using this 5⭐️Great product!
 
 ### Pros and Cons
 
@@ -808,32 +810,32 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Costzon Kids Ride On Motorcycle Licensed Bmw 6V](/Costzon-Kids-Ride-On-Motorcycle-Licensed-Bmw-6V)
 [![Costzon-Kids-Ride-On-Motorcycle-Licensed-Bmw-6V](<https://images-na.ssl-images-amazon.com/images/I/91Zm5EudZ-L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Costzon-Motorcycle-Children-Electric-Headlights/dp/B07WKM2HNJ/?tag=kidselectricvehicle-20>)[![Costzon-Kids-Ride-On-Motorcycle-Licensed-Bmw-6V](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Costzon-Motorcycle-Children-Electric-Headlights/dp/B07WKM2HNJ/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Have your kids get their motorcycle license early with this Costzon Kids Ride on Motorcycle. It includes built-in music, headlights and a safe 3-wheel design. Your little ones can ride and control the motorcycle with ease and have them get their motorcycling license before they even know it!
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Costzon                           |
+|-----------------------|-----------------------------------|
+| Material              | Polyethylene, Polypropylene, Iron |
+| Size                  | 26"×14.5"×17.5"(L×W×H)            |
+| Item Weight           | 11 Pounds                         |
+| Item Dimensions LxWxH | 26 x 14.5 x 17.5 inches           |
+| Assembly Required     | Yes                               |
 
 ### Customers Say about this product
 
-> 
-
-
+> My grand kids love it when we go for a ride they can come along
 
 ### Pros and Cons
 
@@ -843,32 +845,32 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kid Motorz Lil Patrol In Black And White](/Kid-Motorz-Lil-Patrol-In-Black-And-White)
 [![Kid-Motorz-Lil-Patrol-In-Black-And-White](<https://images-na.ssl-images-amazon.com/images/I/71XP5BKvTYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Motorz-Patrol-Black-White/dp/B008TKZAA8/?tag=kidselectricvehicle-20>)[![Kid-Motorz-Lil-Patrol-In-Black-And-White](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Motorz-Patrol-Black-White/dp/B008TKZAA8/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 months and up. It's well-designed for both outdoor and indoor use, thanks to its durable tires that are long lasting and can handle most terrains. This Lil Patrol comes in black with white accents, making it a truly unique ride that your child will love. And with reverse gears, they'll be able to go just about anywhere they please.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | KID MOTORZ                   |
+|-----------------------|------------------------------|
+| Material              | Plastic                      |
+| Size                  | 18 months and up             |
+| Item Weight           | 7.43 Pounds                  |
+| Item Dimensions LxWxH | 25.59 x 17.44 x 12.71 inches |
+| Sub Brand             | (-)                          |
 
 ### Customers Say about this product
 
-> 
-
-
+> Smaller than we thought but my grandson likes it...he just turned 2.
 
 ### Pros and Cons
 
@@ -878,10 +880,7 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Costzon 2-Seater Ride On Truck 12V Battery Powered](/Costzon-2-Seater-Ride-On-Truck-12V-Battery-Powered)
 [![Costzon-2-Seater-Ride-On-Truck-12V-Battery-Powered](<https://images-na.ssl-images-amazon.com/images/I/61CLaspB6xL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Costzon-2-Seater-Battery-Electric-Suspension/dp/B08FMQ6CM4/?tag=kidselectricvehicle-20>)[![Costzon-2-Seater-Ride-On-Truck-12V-Battery-Powered](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Costzon-2-Seater-Battery-Electric-Suspension/dp/B08FMQ6CM4/?tag=kidselectricvehicle-20>)
