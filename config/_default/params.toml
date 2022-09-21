@@ -11,7 +11,7 @@ autoSwitchAppearance = false
 
 enableSearch = true
 enableCodeCopy = true
-
+logo = "/cat-tree-guide.png"
 mainSections = ["samples"]
 # robots = ""
 
