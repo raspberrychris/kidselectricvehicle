@@ -435,22 +435,25 @@ The Land Rover ride-on toy by Best Choice Products is a 2-seater, officially lic
 
 ### Product Description 
 
-
+The Costzon Ride On Truck is perfect for kids 2-6 years old with a height of up to 60 inches. It features two modes with parental remote control and battery operation. The ride on truck can be controlled through the remote control or operated by foot pedal (pedal for acceleration). With forward, reverse and three speeds on the remote control, your child will gain more autonomy. There are two boxes for this ride on truck, please wait patiently for both boxes to be delivered before assembly.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Costzon               |
+|-----------------------|-----------------------|
+| Material              | Polypropylene, Iron   |
+| Size                  | 46.5"×31"×29"(L×W×H)  |
+| Item Weight           | 45 Pounds             |
+| Item Dimensions LxWxH | 46.5 x 31 x 29 inches |
+| Assembly Required     | Yes                   |
 
 ### Customers Say about this product
 
-> 
-
-
+> Easy to assemble and remote control easy to use battery life is good
 
 ### Pros and Cons
 
@@ -460,32 +463,33 @@ The Land Rover ride-on toy by Best Choice Products is a 2-seater, officially lic
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Kidzone Kids Electric Ride On 12V Licensed Lamborghini](/Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini)
 [![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://images-na.ssl-images-amazon.com/images/I/81BSnzeCP4L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Lamborghini-Motorized-Suspension-Bluetooth/dp/B08NJZBV9V/?tag=kidselectricvehicle-20>)[![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Lamborghini-Motorized-Suspension-Bluetooth/dp/B08NJZBV9V/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Let your little one have their own Lamborghini! This toy car is officially licensed with cool features including LED headlights, horn and engine sounds, and hydraulic powered doors that swing open just like the real Lamborghini. With 2 driving modes, this ride on toy offers independent operation with steering wheel and pedal or parent control using remote control. The seatbelt adjusts to fit your child's height, and the slow start function helps them gradually build up speed as they grow.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kidzone                      |
+|-----------------------|------------------------------|
+| Material              | Polypropylene                |
+| Size                  | 42.52 x 24.41 x 15.75 inches |
+| Item Weight           | 26.68 Pounds                 |
+| Item Dimensions LxWxH | 42.52 x 24.41 x 15.75 inches |
+| Assembly Required     | Yes                          |
+
 
 ### Customers Say about this product
 
-> 
-
-
+> This car was easy to put together, remote is handy when my daughter doesn’t want to drive and it’sa good product for the price. She loves it and it makes taking walks with her much easier! I recommend this for kids and parents.
 
 ### Pros and Cons
 
@@ -495,10 +499,7 @@ The Land Rover ride-on toy by Best Choice Products is a 2-seater, officially lic
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Sopbost 12V 10Ah Ride-On Utv  Remote For](/Sopbost-12V-10Ah-Ride-On-Utv--Remote-For)
 [![Sopbost-12V-10Ah-Ride-On-Utv--Remote-For](<https://images-na.ssl-images-amazon.com/images/I/71DakdddRmL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/sopbost-Remote-Off-Road-Electric-Vehicle/dp/B09VNZJ2G5/?tag=kidselectricvehicle-20>)[![Sopbost-12V-10Ah-Ride-On-Utv--Remote-For](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/sopbost-Remote-Off-Road-Electric-Vehicle/dp/B09VNZJ2G5/?tag=kidselectricvehicle-20>)
