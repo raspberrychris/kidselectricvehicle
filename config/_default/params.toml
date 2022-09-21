@@ -11,7 +11,7 @@ autoSwitchAppearance = false
 
 enableSearch = true
 enableCodeCopy = true
-logo = "img/kids-electric-vehicle.jpeg"
+logo = "img/kids-electric-vehicle-logo-2.jpeg"
 mainSections = ["samples"]
 # robots = ""
 
