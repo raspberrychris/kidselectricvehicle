@@ -1,5 +1,5 @@
 ---
-title: "Beginners Guides"
+title: "FAQs"
 description: "Learn how to use Congo and its features."
 
 cascade:
