@@ -286,7 +286,7 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 | 👉 |👉 |
 
 ---
- 
+
 ## [Best Choice Products 12V Kids Ride On Truck](/Best-Choice-Products-12V-Kids-Ride-On-Truck)
 [![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://images-na.ssl-images-amazon.com/images/I/71823o+AgRS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Remote-Control-Speeds-Suspension-Cypressshop/dp/B01N7B2Q4J/?tag=kidselectricvehicle-20>)[![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Remote-Control-Speeds-Suspension-Cypressshop/dp/B01N7B2Q4J/?tag=kidselectricvehicle-20>)
 
@@ -362,22 +362,25 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 
 ### Product Description 
 
-
+Race and drift your way to victory, just like the professionals! This electric drifting go kart is easy to assemble and perfect for kids 6+ (low speed) or 8+ (high speed). The 1:1 steering ratio gives you ultimate responsiveness and control with every turn. The fixed incline, rear caster wheels provide the right balance of drive vs. drift. This go kart is powered by a 12V sealed lead-acid battery that's power efficient and rechargeable, using a Power
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Razor                       |
+|-----------------------|-----------------------------|
+| Material              | Aluminum, Plastic           |
+| Size                  | One Size                    |
+| Item Weight           | 22.22 Pounds                |
+| Item Dimensions LxWxH | 30.35 x 20.66 x 12.8 inches |
+| Sub Brand             | Crazy Cart                  |
 
 ### Customers Say about this product
 
-> 
-
-
+> Crazy cart is so cool, son is having a blast!!!
 
 ### Pros and Cons
 
@@ -387,32 +390,32 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Best Choice Products 12V 3.7 Mph 2-Seater Licensed](/Best-Choice-Products-12V-3.7-Mph-2-Seater-Licensed)
 [![Best-Choice-Products-12V-3.7-Mph-2-Seater-Licensed](<https://images-na.ssl-images-amazon.com/images/I/61mUGxHu2wL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Best-Choice-Products-2-Seater-Licensed/dp/B07V3W1MLH/?tag=kidselectricvehicle-20>)[![Best-Choice-Products-12V-3.7-Mph-2-Seater-Licensed](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Best-Choice-Products-2-Seater-Licensed/dp/B07V3W1MLH/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Land Rover ride-on toy by Best Choice Products is a 2-seater, officially licensed car that has double seating so your child can comfortably cruise in the vehicle and bring a friend or sibling along for the ride. This toy car has both manual and remote controls so your child can drive themselves or you can take control with the remote when necessary. It features 2-wheel suspension, treaded tires, and an AUX player to listen to your favorite music.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Best Choice Products   |
+|-----------------------|------------------------|
+| Material              | PP Plastic, Metal      |
+| Size                  | 51.25x 34 x 26 inches  |
+| Item Weight           | 77.21 Pounds           |
+| Item Dimensions LxWxH | 51.25 x 34 x 26 inches |
+| Assembly Required     | Yes                    |
 
 ### Customers Say about this product
 
-> 
-
-
+> This was a wonderful birthday gift and quite hit the mark with my grandkids. They love it. I got the cover as well for when it needs to be parked outside.
 
 ### Pros and Cons
 
@@ -1825,5 +1828,3 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 
 
 ---
-
-##
