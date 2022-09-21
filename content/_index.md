@@ -1156,22 +1156,25 @@ Little construction workers in training will love this authentically-styled CAT 
 
 ### Product Description 
 
-
+Get your little one ready to ride with this Kidzone 12V 2 Driving Mode Indoor/Outdoor Electric Ride on Bumper Car for Kids & Toddlers. It is designed to offer a level of safety and comfort, as well as versatility, no matter where he wants to ride: indoors, outdoors or both. It features a sturdy plastic
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kidzone                     |
+|-----------------------|-----------------------------|
+| Material              | Polypropylene, Plastic      |
+| Size                  | 31.5 x 21.26x 15.75 inches  |
+| Item Weight           | 18.96 Pounds                |
+| Item Dimensions LxWxH | 31.5 x 21.26 x 15.75 inches |
+| Assembly Required     | Yes                         |
 
 ### Customers Say about this product
 
-> 
-
-
+> It seems very strong and durable, both indoor and outdoor. I bought this one for my niece who turned 2 last week and she absolutely loves it.
 
 ### Pros and Cons
 
@@ -1181,32 +1184,32 @@ Little construction workers in training will love this authentically-styled CAT 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Broage Kids Race Toy 6V Electric Ride On](/Broage-Kids-Race-Toy-6V-Electric-Ride-On)
 [![Broage-Kids-Race-Toy-6V-Electric-Ride-On](<https://images-na.ssl-images-amazon.com/images/I/71W1d9qOQJL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/BROAGE-Electric-Vehicle-Control-ASTM-Certified/dp/B08NSWJSTM/?tag=kidselectricvehicle-20>)[![Broage-Kids-Race-Toy-6V-Electric-Ride-On](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/BROAGE-Electric-Vehicle-Control-ASTM-Certified/dp/B08NSWJSTM/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+This bumper car is a perfect introduction to the world of kids electric cars. The simple joystick controls allow children aged 3-8 years old to drive this super safe and durable toy with a max speed of 0.75mph around your home with ease. The bumpers and motors are built from tough plastic making it robust enough for most bumps and collisions, but soft enough that you can bump about
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | BROAGE                      |
+|-----------------------|-----------------------------|
+| Material              | Plastic                     |
+| Size                  | 28.35 x 28.35x 16.93 inches |
+| Item Weight           | 15 Pounds                   |
+| Item Dimensions LxWxH | 28 x 28 x 17 inches         |
+| Assembly Required     | No                          |
 
 ### Customers Say about this product
 
-> 
-
-
+> My grandson is one and can’t quite figure out the joy sticks on the car itself so the remote would be better for his parents to control.
 
 ### Pros and Cons
 
@@ -1216,10 +1219,7 @@ Little construction workers in training will love this authentically-styled CAT 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Joywhale 24V 2 Seater Kids Ride On Utv](/Joywhale-24V-2-Seater-Kids-Ride-On-Utv)
 [![Joywhale-24V-2-Seater-Kids-Ride-On-Utv](<https://images-na.ssl-images-amazon.com/images/I/61ZJv0Iua+L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Joywhale-Powerful-Easy-Drag-Suspension-BW-U20/dp/B0B38VTWMG/?tag=kidselectricvehicle-20>)[![Joywhale-24V-2-Seater-Kids-Ride-On-Utv](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Joywhale-Powerful-Easy-Drag-Suspension-BW-U20/dp/B0B38VTWMG/?tag=kidselectricvehicle-20>)
