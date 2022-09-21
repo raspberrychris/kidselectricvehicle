@@ -1,6 +1,6 @@
 
 ---
-title: Kids Electric Vehicle 🏎  🚜  🏍
+title: 🏎  🚜  🏍 Kids Electric Vehicle - Get your kids their first ride! 🏎  🚜  🏍
 description: We review the best Kids Electric Vehicles so you can choose the best ones for your little ones!
 ---
 
@@ -78,7 +78,7 @@ Your child won't be able to resist the ride on electric bumper car! This toddler
 |-|-|
 | 👉 Fun for kids: Bumper cars are a blast for kids of all ages. They can drive around the house and play games with each other.|👉 They're a bit noisy. |
 | 👉 Easy to control: With levers or a remote control, bumper cars are easy to navigate. |👉 They require some assembly.|
-| 👉 Turtle mode: There is a special turtle mode for younger drivers/passengers, so they can go at their own pace and not get overwhelmed by the speed of the car|👉 3. They take up quite a bit of space in your house or apartment (depending on the size)|
+| 👉 Turtle mode: There is a special turtle mode for younger drivers/passengers, so they can go at their own pace and not get overwhelmed by the speed of the car|👉 They take up quite a bit of space in your house or apartment (depending on the size)|
 
 ---
 
