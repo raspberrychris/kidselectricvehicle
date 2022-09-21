@@ -1,6 +1,6 @@
 
 ---
-title: 🏎  🚜  🏍 Kids Electric Vehicle - Get your kids their first ride! 🏎  🚜  🏍
+title: 🏎 Kids Electric Vehicle - Get your kids their first ride!🏎 
 description: We review the best Kids Electric Vehicles so you can choose the best ones for your little ones!
 ---
 
