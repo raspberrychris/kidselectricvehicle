@@ -506,22 +506,22 @@ Let your little one have their own Lamborghini! This toy car is officially licen
 
 ### Product Description 
 
-
+The sopbost 12V 10Ah Ride-on UTV with Remote for Girls 4X4 Off-Road Truck Ride on Car to Drive Buggy 4WD is the perfect way to make your kid feel like a grown up. This toy car comes with 4pcs 30W drive motors and traction tires that can help them ride on different terrains, while they also have the option of switching between 2-wheel drive and 4-wheel drive modes. The toy car also comes with a
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand             | Sopbost              |
+|-------------------|----------------------|
+| Material          | Polypropylene, Metal |
+| Assembly Required | Yes                  |
 
 ### Customers Say about this product
 
-> 
-
-
+> The remote is amazing! And my son absolutely loves this! Worth the money, we researched so many and ITS AWESOME THROUGH THE GRASS! for every parent looking for one that is!
 
 ### Pros and Cons
 
@@ -531,32 +531,32 @@ Let your little one have their own Lamborghini! This toy car is officially licen
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Anpabo Licensed Mercedes-Benz G63 Car For Kids 12V](/Anpabo-Licensed-Mercedes-Benz-G63-Car-For-Kids-12V)
 [![Anpabo-Licensed-Mercedes-Benz-G63-Car-For-Kids-12V](<https://images-na.ssl-images-amazon.com/images/I/71bD-DnPnEL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/ANPABO-Mercedes-Benz-G63-Adjustable-Suspension/dp/B0B3G8RFCC/?tag=kidselectricvehicle-20>)[![Anpabo-Licensed-Mercedes-Benz-G63-Car-For-Kids-12V](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/ANPABO-Mercedes-Benz-G63-Adjustable-Suspension/dp/B0B3G8RFCC/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Mercedes Benz G63 Car for Kids is the perfect miniature car for your little one to drive around in. This ride-on car features the iconic grille for which Mercedes Benz is known and will be loved by any child who loves cars. The Mercedes Benz G63 Car for Kids is powered by two 35W high-performance motors and 12V rechargeable batteries, allowing it to go up to 3mph. With one full charge it will last 60 minutes of fun ride time.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | ANPABO                        |
+|-----------------------|-------------------------------|
+| Material              | Polypropylene, Plastic, Metal |
+| Item Weight           | 39 Pounds                     |
+| Item Dimensions LxWxH | 40 x 21 x 22 inches           |
+| Sub Brand             | ANPABO                        |
+| Theme                 | Ride on toys                  |
 
 ### Customers Say about this product
 
-> 
-
-
+> It’s great my 1 year olds loves it
 
 ### Pros and Cons
 
@@ -566,11 +566,8 @@ Let your little one have their own Lamborghini! This toy car is officially licen
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kidzone Diy Sticker Race Car 12V Kids Toy](/Kidzone-Diy-Sticker-Race-Car-12V-Kids-Toy)
 [![Kidzone-Diy-Sticker-Race-Car-12V-Kids-Toy](<https://images-na.ssl-images-amazon.com/images/I/61YueXRrkHL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Bluetooth-Electric-Alphabet-ASTM-Certified/dp/B08LVQBFF3/?tag=kidselectricvehicle-20>)[![Kidzone-Diy-Sticker-Race-Car-12V-Kids-Toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Bluetooth-Electric-Alphabet-ASTM-Certified/dp/B08LVQBFF3/?tag=kidselectricvehicle-20>)
 
