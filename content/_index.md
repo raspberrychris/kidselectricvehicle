@@ -179,9 +179,9 @@ The Kid Trax Toddler Quad Ride-On toy is a fun and adventurous ride-on toy that 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The two-wheeler is easy to operate |👉 Not Durable: The plastic is not very durable, and it will scratch or break if you are too rough with it |
+| 👉 The body of the two-wheeler is made of plastic, which makes it light in weight as well as affordable |👉 Easily Scratched: The plastic scratches easily, so your 2 year old grandson may end up scratching it quite a bit.|
+| 👉 The two-wheeler is perfect for small children who loves to ride and play around with their toys outdoors.|👉 Not Suitable for All Weather Conditions: The plastic may become brittle in colder weather conditions and break more easily |
 
 ---
  
