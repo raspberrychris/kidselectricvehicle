@@ -11,8 +11,6 @@ cascade:
 {{< lead >}}
 Our Privacy Policy{{< /lead >}}
 
-
-
 WHO WE ARE
 Our website address is: https://kidselectricvehicle.com.
 
