@@ -213,9 +213,9 @@ Get your kids their own vehicle with the Best Choice Products Kids 12V Ride On T
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The ride on is great entertainment for our 3 year old grandson.|👉The ride on may be too simple for some 3 year olds, who might get bored quickly.|
+| 👉 He loves just going for a ride.|👉 It is possible that the packaging materials are not all recyclable, despite what the manufacturer claims.|
+| 👉 Delivery arrived in two boxes in very good condition with recyclable packaging.|👉 The ride on may tip over easily, especially if the child leans to one side while riding it.|
 
 ---
 
