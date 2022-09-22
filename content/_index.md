@@ -1295,22 +1295,25 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 
 ### Product Description 
 
-
+Your kids will love the fun and easy to use TEOAYEAH ATV. This battery-powered, 6V ride on car is designed for toddlers and can be driven by children as young as 3 years old. It has a range of features that make it suitable for any age group including wireless music, rear motor, and USB port with built-in light music.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | TEOAYEAH                     |
+|-----------------------|------------------------------|
+| Item Weight           | 15.43 Pounds                 |
+| Item Dimensions LxWxH | 27.17 x 16.73 x 11.42 inches |
+| Sub Brand             | Teoayeah                     |
+| Theme                 | Toys                         |
+| Assembly Required     | Yes                          |
 
 ### Customers Say about this product
 
-> 
-
-
+> Great and easy to put together. My son loved it as a gift for his 2nd birthday. Perfect!
 
 ### Pros and Cons
 
@@ -1320,32 +1323,32 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Costzon Ride On Car Licensed Bmw I8 12V](/Costzon-Ride-On-Car-Licensed-Bmw-I8-12V)
 [![Costzon-Ride-On-Car-Licensed-Bmw-I8-12V](<https://images-na.ssl-images-amazon.com/images/I/71x-NLGdvdL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Costzon-Battery-Powered-Electric-Suspension/dp/B0881K6GKT/?tag=kidselectricvehicle-20>)[![Costzon-Ride-On-Car-Licensed-Bmw-I8-12V](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Costzon-Battery-Powered-Electric-Suspension/dp/B0881K6GKT/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Costzon Ride on Car is a licensed BMW i8 ride-on car that has 2 motors and remote control. This means kids can drive it in manual mode or via remote control, with 3 changeable speeds. It has various features, such as open doors and realistic dashboard items, including shifter, horn buttons and a multi-media center. It's designed to have an authentic driving experience for your kids.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Costzon                       |
+|-----------------------|-------------------------------|
+| Material              | Polypropylene, Iron           |
+| Size                  | 44" x 28.5" x 18" (L x W x H) |
+| Item Weight           | 31 Pounds                     |
+| Item Dimensions LxWxH | 44 x 28.5 x 18 inches         |
+| Sub Brand             | Costzon                       |
 
 ### Customers Say about this product
 
-> 
-
-
+> My granddaughter was apprehensive of the car at first, however she is just 2yrs old. But now she loves it. That being said.. she fits in her BMW perfect at this age, but at 5 or 6 will be too big for it. It is good for a smaller child because of the remote control. 
 
 ### Pros and Cons
 
@@ -1355,32 +1358,32 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Radio Flyer Ultimate Go-Kart 24 Volt Outdoor Ride](/Radio-Flyer-Ultimate-Go-Kart-24-Volt-Outdoor-Ride)
 [![Radio-Flyer-Ultimate-Go-Kart-24-Volt-Outdoor-Ride](<https://images-na.ssl-images-amazon.com/images/I/819NBeYuQ+L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Radio-Flyer-940Z-Ultimate-Go-Kart/dp/B07P9KDVPG/?tag=kidselectricvehicle-20>)[![Radio-Flyer-Ultimate-Go-Kart-24-Volt-Outdoor-Ride](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Radio-Flyer-940Z-Ultimate-Go-Kart/dp/B07P9KDVPG/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Ultimate Go-Kart is the perfect vehicle for any hard-core fan! The adjustable seat allows this go-kart to grow with your child from ages 3 to 8 years, and the padded bucket seat will make this ride even more comfortable. The Ultimate Go-Kart has been named a 2020 Parents’ Choice Recommended Award and is perfect for your little racer!
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Radio Flyer              |
+|-----------------------|--------------------------|
+| Material              | Plastic, Steel           |
+| Size                  | For 3-8 years            |
+| Item Weight           | 1 Kilograms              |
+| Item Dimensions LxWxH | 43 x 30.25 x 37.2 inches |
+| Sub Brand             | Radio flyer              |
 
 ### Customers Say about this product
 
-> 
-
-
+> Love this go-kart. Bought for my sons 5th birthday and he hasn't stopped riding ever since we put it together and charged it. Drives it everyday until the battery is dead. Will go about 2-3 hours being driven continuously on a charge. Very sturdy. Will take several hours to fully assemble.
 
 ### Pros and Cons
 
@@ -1390,32 +1393,29 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Sopbost Toddler 4 Wheeler 6V Ride On Toys](/Sopbost-Toddler-4-Wheeler-6V-Ride-On-Toys)
 [![Sopbost-Toddler-4-Wheeler-6V-Ride-On-Toys](<https://images-na.ssl-images-amazon.com/images/I/71bNKXK8xeL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/sopbost-Toddler-Wheeler-Electric-Headlight/dp/B0B4W9RSBD/?tag=kidselectricvehicle-20>)[![Sopbost-Toddler-4-Wheeler-6V-Ride-On-Toys](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/sopbost-Toddler-Wheeler-Electric-Headlight/dp/B0B4W9RSBD/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Get your little one on their first 4-wheeler with this battery powered electric car. This electric car is powered by a 6V rechargeable lead-acid battery and driven by one motor. The maximum speed is 1.24mph. With working headlights, a button on the handlebar for driving and simulated driving experience, this toy car provides hours of fun for all ages. The anti-slip wheels are durable and wear-resistant, suitable for both indoor and outdoor use.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand             | Sopbost              |
+|-------------------|----------------------|
+| Material          | Polypropylene, Metal |
+| Assembly Required | Yes                  |
 
 ### Customers Say about this product
 
-> 
-
-
+> We love this for our little guy. He is having so much fun. He loves levers so it was perfect for him.
 
 ### Pros and Cons
 
@@ -1425,32 +1425,30 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Rollplay Electric Train Ride On For Kids Featuring](/Rollplay-Electric-Train-Ride-On-For-Kids-Featuring)
 [![Rollplay-Electric-Train-Ride-On-For-Kids-Featuring](<https://images-na.ssl-images-amazon.com/images/I/81cEo5QM2JL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Rollplay-Electric-Featuring-Detachable-Headlights/dp/B01F76Q5QY/?tag=kidselectricvehicle-20>)[![Rollplay-Electric-Train-Ride-On-For-Kids-Featuring](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Rollplay-Electric-Featuring-Detachable-Headlights/dp/B01F76Q5QY/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Take the ride of your life with the Rollplay Electric Train Ride On for Kids! This battery-powered toy train is loaded with features to provide hours of fun. The train includes six volts of rechargeable battery power and a working headlight and sound button. You can blow its whistle or play chuffing sounds by pressing this button as well. There’s also a real water stream that can be turned on to give you an added realistic feel. You can ride around in safety at
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Rollplay                     |
+|-----------------------|------------------------------|
+| Item Weight           | 14 Pounds                    |
+| Item Dimensions LxWxH | 21.91 x 18.52 x 15.17 inches |
+| Assembly Required     | Yes                          |
 
 ### Customers Say about this product
 
-> 
-
-
+> Good quality. Granddaughter loves it. The start motion has a little jerking motion, but it's not bad, just be aware for when the child turns.it.on the first time ☺️
 
 ### Pros and Cons
 
@@ -1460,32 +1458,31 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Metaklicensed Mercedes-Benz G63 Car For Kids  2](/Metaklicensed-Mercedes-Benz-G63-Car-For-Kids--2)
 [![Metaklicensed-Mercedes-Benz-G63-Car-For-Kids--2](<https://images-na.ssl-images-amazon.com/images/I/71uBdVkdmiL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/METAKLicensed-Mercedes-Benz-Powerful-Electric-Suspension/dp/B09D6Z8NZP/?tag=kidselectricvehicle-20>)[![Metaklicensed-Mercedes-Benz-G63-Car-For-Kids--2](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/METAKLicensed-Mercedes-Benz-Powerful-Electric-Suspension/dp/B09D6Z8NZP/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Mercedes-Benz G63 Car For Kids is a licensed, remote control toy car with two powerful motors and 12V of battery power. It has a realistic horn sound and the vehicle is equipped with an AUX/ TF/ USB port for entertainment and a wireless Bluetooth music mode for your child to enjoy at the same time.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | METAK                        |
+|-----------------------|------------------------------|
+| Item Weight           | 39.9 Pounds                  |
+| Item Dimensions LxWxH | 43.31 x 27.17 x 22.24 inches |
+| Theme                 | Toys                         |
+| Assembly Required     | Yes                          |
 
 ### Customers Say about this product
 
-> 
-
-
+> The parent remote is very helpful, with 3 different speeds. We love the Bluetooth option on the car. Speed is okay, battery life is about normal for any other. It gos over rocks, cement and grass!
 
 ### Pros and Cons
 
@@ -1495,32 +1492,30 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kids Ride On Truck 12V Kids Electric Truck](/Kids-Ride-On-Truck-12V-Kids-Electric-Truck)
 [![Kids-Ride-On-Truck-12V-Kids-Electric-Truck](<https://images-na.ssl-images-amazon.com/images/I/81ZVkfCdh1L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Electric-Spring-Suspension-Parent-Control/dp/B0B4DM4DPV/?tag=kidselectricvehicle-20>)[![Kids-Ride-On-Truck-12V-Kids-Electric-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Electric-Spring-Suspension-Parent-Control/dp/B0B4DM4DPV/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Kids love driving around on this 12V Kids Electric Truck! Designed with a 30W dual powerful motors and spring suspension, it gives kids a smooth ride. The truck has passed the ASTM F963 & CPSIA safety standards and quality is guaranteed. It includes 2-point safety belt that keeps children in place and locks when driving, improving safety. Comes with large shock-absorbing plastic tires to prevent skidding.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand             | CHRUN               |
+|-------------------|---------------------|
+| Material          | Polypropylene, Iron |
+| Size              | 26*39.2*26 in       |
+| Assembly Required | Yes                 |
 
 ### Customers Say about this product
 
-> 
-
-
+> The jeep is awesome! My daughter loves it. The bluetooth connects with no issues and it drives nice. But, it makes very wide turns. There will be no sharp turning and you might need to throw it in reverse to make the turn. But still recommend it
 
 ### Pros and Cons
 
@@ -1530,11 +1525,8 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Realtree 24V Battery Powered Utv Kids Electric Ride](/Realtree-24V-Battery-Powered-Utv-Kids-Electric-Ride)
 [![Realtree-24V-Battery-Powered-Utv-Kids-Electric-Ride](<https://images-na.ssl-images-amazon.com/images/I/71AOJhen5DL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Realtree-Battery-Powered-Electric-2-Seater/dp/B09S7R4KZL/?tag=kidselectricvehicle-20>)[![Realtree-24V-Battery-Powered-Utv-Kids-Electric-Ride](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Realtree-Battery-Powered-Electric-2-Seater/dp/B09S7R4KZL/?tag=kidselectricvehicle-20>)
 
