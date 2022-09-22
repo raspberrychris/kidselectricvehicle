@@ -1602,22 +1602,25 @@ This electric ride-on truck by Kidzone is the ultimate way for kids to enjoy the
 
 ### Product Description 
 
-
+Aspiring young farmers will love the realistic design of this Kidzone Tractor Ride-On Toy. Featuring 7-LED headlights, a control panel, shift knob and solid armrest for an authentic experience, it's suitable for kids aged 3 to 6 years. The detachable trailer allows them to carry small toys and snacks or even ride in the backyard or garden! With a 3-gear system, they'll have their hands on the driving experience. Packed with so much detail and fun, it
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kidzone                      |
+|-----------------------|------------------------------|
+| Material              | Polyethylene, Polypropylene  |
+| Size                  | 53.74x 19.69x 20.67 inches   |
+| Item Weight           | 28.22 Pounds                 |
+| Item Dimensions LxWxH | 53.74 x 19.69 x 20.67 inches |
+| Sub Brand             | Kidzone                      |
 
 ### Customers Say about this product
 
-> 
-
-
+> The ability to control it with a remote?! Genius!!! My 3 year old got the green tractor he asked for (which amazed him) and we can ride him around so he can use it before he’s old enough to really understand controlling the wheel and pedal. BRILLIANT. Also not huge. Love this item.
 
 ### Pros and Cons
 
@@ -1627,11 +1630,8 @@ This electric ride-on truck by Kidzone is the ultimate way for kids to enjoy the
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Sopbost 24V Ride On Utv 2 Seater Ride](/Sopbost-24V-Ride-On-Utv-2-Seater-Ride)
 [![Sopbost-24V-Ride-On-Utv-2-Seater-Ride](<https://images-na.ssl-images-amazon.com/images/I/71xaKbiyExS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Sopbost-Control-Electric-Motorized-Suspension/dp/B0B9SNC76P/?tag=kidselectricvehicle-20>)[![Sopbost-24V-Ride-On-Utv-2-Seater-Ride](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Sopbost-Control-Electric-Motorized-Suspension/dp/B0B9SNC76P/?tag=kidselectricvehicle-20>)
 
