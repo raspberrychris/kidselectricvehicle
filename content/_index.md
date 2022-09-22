@@ -144,9 +144,9 @@ The Peg Perego John Deere Ground Force Tractor with Trailer is a replica of the 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The tractor looks and functions great overall.|👉 There were a lot of small parts and it was hard to tell which part went where|
+| 👉 It is a durable product that will last for years.|👉 Poor Quality Control: Once I finally got the tractor assembled, I noticed that the paint job was very sloppy and there were some areas where the plastic was not even smooth.|
+| 👉 It is easy to assemble and my son loves it!|👉 Fragile Parts: Some of the parts on the tractor are quite fragile and break easily.|
 
 ---
 
