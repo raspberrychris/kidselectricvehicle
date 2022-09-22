@@ -1260,22 +1260,25 @@ Get the best experience for your kids with Joywhale 2 Seater UTV! Equipped with 
 
 ### Product Description 
 
-
+Kids love to pretend they're in the big leagues. With this TOBBI police car, they can drive around and take care of business. The soft start design makes it hard for them to be scared by sudden accelerations. This toy is well-designed with a flashing light, siren, megaphone, and police signs. It's perfect for both parent-controlled remote control mode and battery-operated mode.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand          | TOBBI                   |
+|----------------|-------------------------|
+| Material       | Iron                    |
+| Size           | 43.3x 26.8x 20.5 inches |
+| Item Weight    | 35.3 Pounds             |
+| Sub Brand      | Tobbi                   |
+| Control Method | Remote                  |
 
 ### Customers Say about this product
 
-> 
-
-
+> We where pleased with our purchase. Assembly wasn't to bad. Batteries in remote controller where dead but car battery was ready to go.
 
 ### Pros and Cons
 
@@ -1285,11 +1288,8 @@ Get the best experience for your kids with Joywhale 2 Seater UTV! Equipped with 
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Teoayeah 25W Toddlers Atv Wireless Music 6V Battery](/Teoayeah-25W-Toddlers-Atv-Wireless-Music-6V-Battery)
 [![Teoayeah-25W-Toddlers-Atv-Wireless-Music-6V-Battery](<https://images-na.ssl-images-amazon.com/images/I/71nb98flPJL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/TEOAYEAH-Toddlers-Wireless-Battery-Electric/dp/B09MVLWTQM/?tag=kidselectricvehicle-20>)[![Teoayeah-25W-Toddlers-Atv-Wireless-Music-6V-Battery](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/TEOAYEAH-Toddlers-Wireless-Battery-Electric/dp/B09MVLWTQM/?tag=kidselectricvehicle-20>)
 
