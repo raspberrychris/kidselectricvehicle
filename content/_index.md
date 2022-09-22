@@ -1707,22 +1707,24 @@ This Costzon 12V Kids Motorcycle is designed for young learners and beginners. T
 
 ### Product Description 
 
-
+If your little one is a fan of the Chevy Trail Boss, they’ll love this Kidzone 12V Battery Powered Licensed Chevrolet Silverado Trail Boss LT Kids Ride On Truck Car. It delivers an authentic driving experience with its plush interior, stylish design and realistic features. This ride on car is made of durable and non-toxic plastic with ASTM certification to ensure it’s safe for your child. The maximum weight capacity is 66 lbs, suitable for kids aged 37-72 months
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kidzone                      |
+|-----------------------|------------------------------|
+| Material              | Polypropylene, Plastic       |
+| Size                  | 42.91 x 28.34x 25.19 inches  |
+| Item Weight           | 36.82 Pounds                 |
+| Item Dimensions LxWxH | 42.91 x 28.34 x 25.19 inches |
 
 ### Customers Say about this product
 
-> 
-
-
+> This little truck has headlights, locking doors I'm a locking door, push button start as well as so many other features. They have definitely come a long way. It is actually a very pretty little truck.
 
 ### Pros and Cons
 
@@ -1731,7 +1733,5 @@ This Costzon 12V Kids Motorcycle is designed for young learners and beginners. T
 | 👉 |👉 |
 | 👉 |👉 |
 | 👉 |👉 |
-
-
 
 ---
