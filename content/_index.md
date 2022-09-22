@@ -248,9 +248,9 @@ The Razor MX350 dirt bike is perfect for riders of all ages. With authentic moto
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Easy to assemble|👉 It is not a fast bike, so if you are looking for speed, this is not the bike for you.|
+| 👉 Long battery life|👉 The battery life is shorter than some of the other electric mini dirt bikes on the market.|
+| 👉 Runs well on both off-road and on-road terrain|👉 It can be difficult to assemble, so if you are not mechanically inclined, it might be best to have someone else put it together for you.|
 
 ---
  
@@ -283,9 +283,9 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The CAT Tough Toddler Quad is a great ride-on toy for kids who love construction vehicles.|👉 The battery only lasts for around an hour before it needs to be recharged, which can be frustrating for kids.|
+| 👉 It has real foot pedal acceleration and a top speed of 1.5 MPH, making it both fun and safe for kids to play with.|👉 Some parents have complained that the quad is too slow and doesn't go very far on a full charge.|
+| 👉 The included 6-volt battery and charger mean that the fun can go on for hours without having to stop for recharging breaks.|👉 Some children may find the design of the quad too "babyish" and outgrow it quickly compared to other ride-on toys on the market|
 
 ---
 
