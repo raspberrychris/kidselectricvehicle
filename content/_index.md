@@ -219,27 +219,30 @@ Get your kids their own vehicle with the Best Choice Products Kids 12V Ride On T
 
 ---
 
-## [Razor Dirt Rocket Electric Motocross Off-Road Bike -](/Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike--)
-[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike--](<https://images-na.ssl-images-amazon.com/images/I/71IiAdV95KL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike--](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)
+## [Razor Dirt Rocket Electric Motocross Off-Road Bike](/Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike)
+[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike](<https://images-na.ssl-images-amazon.com/images/I/71IiAdV95KL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+The Razor MX350 dirt bike is perfect for riders of all ages. With authentic motocross frame geometry, this is scaled down to size for riders age 13+ and up to 140 lb (64 kg). Features high-torque rear-wheel chain drive delivering increased power and traction. The MX350 can reach speeds of up to 14 mph (22 km/h) with up to 30 minutes of continuous use. The MX350 features adjustable-angle riser style handlebars, spoked wheels
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Razor                 |
+|-----------------------|-----------------------|
+| Material              | Alloy Steel           |
+| Size                  | 10-12"                |
+| Item Weight           | 25 Kilograms          |
+| Item Dimensions LxWxH | 24.5 x 31 x 44 inches |
+| Sub Brand             | Razor                 |
 
 ### Customers Say about this product
 
-> 
-
-
+> Boys (5 &3) ride them daily. They have lasted months with no issues.
 
 ### Pros and Cons
 
@@ -249,10 +252,7 @@ Get your kids their own vehicle with the Best Choice Products Kids 12V Ride On T
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
-
  
 ## [Kid Trax Cat Toddler Quad Ride On Toy](/Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy)
 [![Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy](<https://images-na.ssl-images-amazon.com/images/I/81eYYJXuD-S._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Trax-Toddler-Battery-KT1575AZ/dp/B087N12241/?tag=kidselectricvehicle-20>)[![Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Trax-Toddler-Battery-KT1575AZ/dp/B087N12241/?tag=kidselectricvehicle-20>)
@@ -294,22 +294,25 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 
 ### Product Description 
 
-
+The Best Choice Products 12V Kids Ride On Truck Car is perfect for your little racers who want to start driving like the grownups do! With a 12V motor and traction tires to ride on different terrains, this small yet powerful ride-on is perfect for kids 37 months and older. With a manual and parent control, you can let your child drive manually or use the remote control to guide them yourself. The remote has forward/reverse controls for safe driving.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                   | Best Choice Products |
+|-------------------------|----------------------|
+| Toy vehicle form        | Truck                |
+| Material                | PP Plastic, Metal    |
+| Color                   | Pink                 |
+| Age Range (Description) | 3-5 years            |
+| Control Method          | Remote               |
 
 ### Customers Say about this product
 
-> 
-
-
+> Amazing toy for our little one.we buckle her in and we control the vehicle and go on walks daily.we love the Bluetooth radio and regular radio as well.
 
 ### Pros and Cons
 
@@ -319,32 +322,32 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kidzone Kids Electric Ride On 12V Licensed Lamborghini](/Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini)
 [![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://images-na.ssl-images-amazon.com/images/I/717OYZvaqYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Lamborghini-Aventador-Headlights-Hydraulic/dp/B097DK9H93/?tag=kidselectricvehicle-20>)[![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Lamborghini-Aventador-Headlights-Hydraulic/dp/B097DK9H93/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+Our ride-on car for kids is a must-have for any young Lamborghini enthusiast. This battery powered sports car toy has been officially licensed and features LED headlights, horn, engine sounds and hydraulic powered doors that swing open just like the real Lamborghini! With an adjustable seat belt and slow start function, this ride on toy is perfect for all children.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kidzone                      |
+|-----------------------|------------------------------|
+| Material              | Polypropylene                |
+| Size                  | 45.27 x 25.82 x 17.71inches  |
+| Item Weight           | 38.58 Pounds                 |
+| Item Dimensions LxWxH | 45.27 x 25.82 x 17.71 inches |
+| Sub Brand             | Kidzone                      |
 
 ### Customers Say about this product
 
-> 
-
-
+> I’ve never wanted to buy one of these for my kids but we did. It’s a great car, lots of fun features, easy to charge, battery lasts a good amount of time. The kids love it.
 
 ### Pros and Cons
 
@@ -354,11 +357,8 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Razor Crazy Cart Shift For Kids Ages 6+](/Razor-Crazy-Cart-Shift-For-Kids-Ages-6+)
 [![Razor-Crazy-Cart-Shift-For-Kids-Ages-6+](<https://images-na.ssl-images-amazon.com/images/I/71-f0J2wwyS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Razor-Crazy-Cart-Shift-2-0/dp/B083G8M85R/?tag=kidselectricvehicle-20>)[![Razor-Crazy-Cart-Shift-For-Kids-Ages-6+](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Crazy-Cart-Shift-2-0/dp/B083G8M85R/?tag=kidselectricvehicle-20>)
 
@@ -427,11 +427,8 @@ The Land Rover ride-on toy by Best Choice Products is a 2-seater, officially lic
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Costzon Ride On Truck 12V Battery Powered Electric](/Costzon-Ride-On-Truck-12V-Battery-Powered-Electric)
 [![Costzon-Ride-On-Truck-12V-Battery-Powered-Electric](<https://images-na.ssl-images-amazon.com/images/I/71A07z9wP1L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Costzon-Electric-Bluetooth-Parental-Suspension/dp/B07WZTN8VQ/?tag=kidselectricvehicle-20>)[![Costzon-Ride-On-Truck-12V-Battery-Powered-Electric](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Costzon-Electric-Bluetooth-Parental-Suspension/dp/B07WZTN8VQ/?tag=kidselectricvehicle-20>)
 
@@ -628,7 +625,7 @@ The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switch
 
 ### Customers Say about this product
 
-> Love, love it❤️
+> Love, love it! ❤️
 
 ### Pros and Cons
 
@@ -715,7 +712,7 @@ Give your kids the ultimate driving experience with the Costzon Kids ATV. This e
 
 ### Product Description 
 
-
+The John Deere Gator XUV lets kids explore the outdoors with a vehicle that combines rugged, 4x4 capabilities with on-road driving dynamics. This electric quad features 2 speeds (2 1/2 and 5 mph), a reverse gear, accelerator pedal with automatic brakes and an extra-large dumpbed with tailgate for loading and unloading toys. The adjustable seat allows children to grow into the Gator and enjoy more time playing.
 
 ### Our Rating For This Product
 
@@ -1228,22 +1225,25 @@ This bumper car is a perfect introduction to the world of kids electric cars. Th
 
 ### Product Description 
 
-
+Get the best experience for your kids with Joywhale 2 Seater UTV! Equipped with a 24V/4X45W motor, this kids ride on car can provide more powerful and stable power in any condition. It also comes with a 10AH big battery which can last up to two hours of continuous playtime. The large full-metal suspension provides better shock absorption, so that bumps on the rough road can be significantly reduced. With two seat positions and two driving modes, it
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                   | Joywhale  |
+|-------------------------|-----------|
+| Toy vehicle form        | Car       |
+| Material                | Plastic   |
+| Color                   | Pink      |
+| Age Range (Description) | 3-8 Years |
+| Control Method          | Remote    |
 
 ### Customers Say about this product
 
-> 
-
-
+> My granddaughter LOVES her new toy!! She enjoys riding her little sister around with her. Surprisingly there’s enough room or the both of them.
 
 ### Pros and Cons
 
@@ -1253,11 +1253,8 @@ This bumper car is a perfect introduction to the world of kids electric cars. Th
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Tobbi 12V Fire Truck Ride On Battery Powered](/Tobbi-12V-Fire-Truck-Ride-On-Battery-Powered)
 [![Tobbi-12V-Fire-Truck-Ride-On-Battery-Powered](<https://images-na.ssl-images-amazon.com/images/I/61wKePjRjYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/TOBBI-Electric-Parental-Bluetooth-Suspension/dp/B089KD4QLM/?tag=kidselectricvehicle-20>)[![Tobbi-12V-Fire-Truck-Ride-On-Battery-Powered](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/TOBBI-Electric-Parental-Bluetooth-Suspension/dp/B089KD4QLM/?tag=kidselectricvehicle-20>)
 
