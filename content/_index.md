@@ -318,9 +318,10 @@ The Best Choice Products 12V Kids Ride On Truck Car is perfect for your little r
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Packaging was perfect and all parts were included with no issues|👉Parts may be missing: There have been some reports of parts being missing from the packaging, which can obviously cause delays in assembly|
+| 👉 Clear instructions with pictures made assembly easy with no questions or issues|👉 Instructions may be unclear: Some people have reported that the instructions are difficult to follow or even read, which can obviously lead to frustration during assembly.|
+| 👉 Steering column installation was straightforward and easy to do using a flashlight or phone light|👉 All parts may not be included: There have been some reports of parts not being included in the packaging, which again can cause delays in assembly
+|
 
 ---
 
