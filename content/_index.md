@@ -1527,62 +1527,30 @@ Kids love driving around on this 12V Kids Electric Truck! Designed with a 30W du
 
 ---
 
-## [Realtree 24V Battery Powered Utv Kids Electric Ride](/Realtree-24V-Battery-Powered-Utv-Kids-Electric-Ride)
-[![Realtree-24V-Battery-Powered-Utv-Kids-Electric-Ride](<https://images-na.ssl-images-amazon.com/images/I/71AOJhen5DL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Realtree-Battery-Powered-Electric-2-Seater/dp/B09S7R4KZL/?tag=kidselectricvehicle-20>)[![Realtree-24V-Battery-Powered-Utv-Kids-Electric-Ride](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Realtree-Battery-Powered-Electric-2-Seater/dp/B09S7R4KZL/?tag=kidselectricvehicle-20>)
-
-### Product Description 
-
-
-
-### Our Rating For This Product
-
-
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
-> 
-
-
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
-
----
-
- 
 ## [Two (2) Seater Ride On Kids Car Truck](/Two-(2)-Seater-Ride-On-Kids-Car-Truck)
 [![Two-(2)-Seater-Ride-On-Kids-Car-Truck](<https://images-na.ssl-images-amazon.com/images/I/71rl9Sdw4GS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kids-Battery-Licensed-Leather-Bluetooth/dp/B089G47S6K/?tag=kidselectricvehicle-20>)[![Two-(2)-Seater-Ride-On-Kids-Car-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kids-Battery-Licensed-Leather-Bluetooth/dp/B089G47S6K/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+We're big kids at heart and know that every kid deserves a ride. This two-seater truck car delivers adventurous rides for kids ages 2 to 6 years. Equally entertaining for adults who want to play along through remote control operation, it has a soft start and electric brake system for gradual acceleration and reliable braking. The 2-way adjustable, soft perforated PU leather seat with 2-way convertible safety seat belt can be used as a single safety belt for one child or two separate seat
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Moderno Kids          |
+|-----------------------|-----------------------|
+| Material              | Rubber                |
+| Size                  | Two Seater            |
+| Item Weight           | 70 Pounds             |
+| Item Dimensions LxWxH | 50 x 31 x 30.5 inches |
+| Assembly Required     | Yes                   |
 
 ### Customers Say about this product
 
-> 
-
-
+> My family absolutely loves this product and the battery life is great! We’ve taken the jeep all around the neighborhood and still had plenty of juice to keep going (I live in a hilly neighborhood and one loop is half a mile)! It’s pricey but well worth the smiles !
 
 ### Pros and Cons
 
@@ -1592,32 +1560,32 @@ Kids love driving around on this 12V Kids Electric Truck! Designed with a 30W du
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kidzone Kids 12V9Ah Battery Powered Extra Wide Seat](/Kidzone-Kids-12V9Ah-Battery-Powered-Extra-Wide-Seat)
 [![Kidzone-Kids-12V9Ah-Battery-Powered-Extra-Wide-Seat](<https://images-na.ssl-images-amazon.com/images/I/718Y3RXL1rL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Battery-Powered-License-Bluetooth/dp/B08N6BZ618/?tag=kidselectricvehicle-20>)[![Kidzone-Kids-12V9Ah-Battery-Powered-Extra-Wide-Seat](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Battery-Powered-License-Bluetooth/dp/B08N6BZ618/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
-
+This electric ride-on truck by Kidzone is the ultimate way for kids to enjoy their time on a toy. With up to 12V9AH of battery power, it's ideal for kids aged 3-8 years and can handle a weight capacity of 77 lbs. Made with durable materials and equipped with features such as headlights, floodlights and rearview mirrors, your child will love riding this truck around the neighborhood.
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Kidzone                   |
+|-----------------------|---------------------------|
+| Material              | Polypropylene             |
+| Size                  | 12V Battery W/ PP Tire    |
+| Item Weight           | 47 Pounds                 |
+| Item Dimensions LxWxH | 48.4 x 34.6 x 31.5 inches |
+| Sub Brand             | Kidzone                   |
 
 ### Customers Say about this product
 
-> 
-
-
+> Love how you can either use remote control to drive your kiddos around or let them drive around themselves! Very cool product with real lights, radio & Bluetooth! My kids absolutely love this jeep 😊
 
 ### Pros and Cons
 
@@ -1627,11 +1595,8 @@ Kids love driving around on this 12V Kids Electric Truck! Designed with a 30W du
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kidzone 12V 7Ah Treaded Tires Kids Battery Powered](/Kidzone-12V-7Ah-Treaded-Tires-Kids-Battery-Powered)
 [![Kidzone-12V-7Ah-Treaded-Tires-Kids-Battery-Powered](<https://images-na.ssl-images-amazon.com/images/I/61FyyRjBOYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Battery-Powered-Electric-Bluetooth/dp/B08CXX8BW3/?tag=kidselectricvehicle-20>)[![Kidzone-12V-7Ah-Treaded-Tires-Kids-Battery-Powered](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Battery-Powered-Electric-Bluetooth/dp/B08CXX8BW3/?tag=kidselectricvehicle-20>)
 
