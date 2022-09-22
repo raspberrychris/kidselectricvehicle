@@ -11,6 +11,8 @@ cascade:
 {{< lead >}}
 Our Privacy Policy{{< /lead >}}
 
+![kids-electric-cars](/kids-electric-toy-cars.png)
+
 WHO WE ARE
 Our website address is: https://kidselectricvehicle.com.
 
