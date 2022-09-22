@@ -1672,22 +1672,25 @@ Aspiring young farmers will love the realistic design of this Kidzone Tractor Ri
 
 ### Product Description 
 
-
+This Costzon 12V Kids Motorcycle is designed for young learners and beginners. The start-up key makes it easy enough for kids to either power or stop the motorcycle, and the forward and backward function can be realized by means of the foot pedal. The curved seat fitting well with kids’ body curve is capable of improving the level of driving comfortableness. There are also two training wheels which keep the motorcycle as steady as possible while preventing it from falling over. This way, you can
 
 ### Our Rating For This Product
-
-
 
 ⭐⭐⭐⭐⭐
 
 ### Technical Details
 
+| Brand                 | Costzon                      |
+|-----------------------|------------------------------|
+| Material              | Polypropylene, Iron          |
+| Size                  | 43.5"x 22.5" x28"(L X W X H) |
+| Item Weight           | 27.5 Pounds                  |
+| Item Dimensions LxWxH | 43.5 x 22.5 x 28 inches      |
+| Sub Brand             | Costzon                      |
 
 ### Customers Say about this product
 
-> 
-
-
+> Bought this bike for our sons 3rd birthday. He’s about 3ft tall, and 35lbs and can ride this bike so easily! Battery will need to be plugged in for at least 18 hours prior to the first ride so order in advance if you’re buying for a present. It took about 30 mins to assemble it too. Overall it’s a great 12v bike and you can’t beat the price!
 
 ### Pros and Cons
 
@@ -1697,11 +1700,8 @@ Aspiring young farmers will love the realistic design of this Kidzone Tractor Ri
 | 👉 |👉 |
 | 👉 |👉 |
 
-
-
 ---
 
- 
 ## [Kidzone 12V Battery Powered Licensed Chevrolet Silverado Trail](/Kidzone-12V-Battery-Powered-Licensed-Chevrolet-Silverado-Trail)
 [![Kidzone-12V-Battery-Powered-Licensed-Chevrolet-Silverado-Trail](<https://images-na.ssl-images-amazon.com/images/I/714VZTLUefL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Licensed-Chevrolet-Silverado-Bluetooth/dp/B097DGBX6L/?tag=kidselectricvehicle-20>)[![Kidzone-12V-Battery-Powered-Licensed-Chevrolet-Silverado-Trail](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Licensed-Chevrolet-Silverado-Bluetooth/dp/B097DGBX6L/?tag=kidselectricvehicle-20>)
 
