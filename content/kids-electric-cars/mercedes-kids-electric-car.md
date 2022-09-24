@@ -1,7 +1,7 @@
 
 ---
-title: Mercedes kids electric Car - Get your kids their first Merc!
-description: We review the best Kids Electric Cars so you can choose the best ones for your little ones!
+title: Mercedes Benz Electric Ride-Ons - Get your kids their first Merc!
+description: We pick the best Kids Electric Cars so you can choose the best ones for your little ones!
 ---
 
 {{< lead >}}

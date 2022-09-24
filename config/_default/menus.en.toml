@@ -24,21 +24,32 @@
   name = "Reviews"
   pageRef = "Reviews"
   weight = 30
+
+[[main]]
+  name = "Kids Electric Cars"
+  pageRef = "kids-electric-cars"
+  weight = 40
   
+[[main]]
+  name = "Mercedes Kids Electric Car"
+  pageRef = "mercedes-kids-electric-car"
+  weight = 45
+  parent = "Kids Electric Cars"
+
 [[main]]
   name = "Affiliate Disclosure"
   pageRef = "affiliate-disclosure"
-  weight = 40
+  weight = 50
   
 [[main]]
   name = "Privacy Policy"
   pageRef = "privacy-policy"
-  weight = 50
+  weight = 60
   
 [[main]]
   name = "Contact"
   pageRef = "contact"
-  weight = 60  
+  weight = 70  
 
 
 # -- Footer Menu --
