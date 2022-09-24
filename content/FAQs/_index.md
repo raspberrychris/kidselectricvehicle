@@ -9,11 +9,10 @@ cascade:
 ---
 
 {{< lead >}}
-Our beginners guides to looking after you cat are here.  Get tips and tricks on everything about taking care of your precious fur baby!
+Check out our most Frequently Asked Questions here.
 {{< /lead >}}
 
-![Screenshots of Congo on an iPhone, iPad and MacBook](screenshot.png)
+![frequently-asked-questions](img/faqs)
 
-This section contains everything you need to know about Congo. If you're new, check out the [Installation]({{< ref "docs/installation" >}}) guide to begin or visit the [Samples]({{< ref "samples" >}}) section to see what Congo can do.
-
+This page has some of the top question that you ask us the most!  Everything you need to know about owning and maintaining a kids electric car is included here.  Use the search bar or search the blogs below to search our FAQs.
 ---
