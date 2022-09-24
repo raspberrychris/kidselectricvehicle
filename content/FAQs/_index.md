@@ -9,10 +9,10 @@ cascade:
 ---
 
 {{< lead >}}
-Check out our most Frequently Asked Questions here.
+Check out our most Frequently Asked Questions on this page.
 {{< /lead >}}
 
-![frequently-asked-questions](/kidselectricvehicle/assets/img/faqs.jpg)
+![frequently-asked-questions](img/faqs.jpg)
 
 This page has some of the top question that you ask us the most!  Everything you need to know about owning and maintaining a kids electric car is included here.  Use the search bar or search the blogs below to search our FAQs.
 ---
