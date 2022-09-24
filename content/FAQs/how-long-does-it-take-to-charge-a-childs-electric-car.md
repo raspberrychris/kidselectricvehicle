@@ -4,8 +4,6 @@ date: 2022-09-24T21:54:39+01:00
 draft: false
 ---
 
-# How Long Does It Take to Charge a Childs Electric Car
-
 In general, electric cars are quick and easy to charge. It's a matter of plugging them into a wall outlet. 
 
 The charging time will depend on the capacity of the battery, which is indicated by kWh. 
