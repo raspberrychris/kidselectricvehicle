@@ -10,6 +10,10 @@ We have checked out all of the the best Kids Electric Vehicles so you can choose
 
 Hi welcome to [Kids Electric Vehicle](https://kidselectricvehicle.com) 🏎  🚜  🏍.
 
+Kids Electric Vehicle is on a mission to help you find the best kids electric cars out there.
+
+
+
 ![kids-electric-cars](/kids-electric-toy-cars.png)
 
 ## [ Best Choice Products 12V Kids Ride On Truck - (⭐⭐ Our Top Pick for 2022! ⭐⭐)](/Best-Choice-Products-12V-Kids-Ride-On-Truck)
