@@ -7,6 +7,7 @@ description: "Icon support in Congo."
 slug: "icons"
 tags: ["icons", "sample", "shortcodes"]
 showDateUpdated: true
+draft: true
 ---
 
 Congo has built-in support for a number of [FontAwesome 6](https://fontawesome.com/icons) icons. These can be included in your website through either the [icon partial]({{< ref "docs/partials#icon" >}}) or [icon shortcode]({{< ref "docs/shortcodes#icon" >}}).
