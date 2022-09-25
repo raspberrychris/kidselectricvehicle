@@ -27,9 +27,9 @@ This small but powerful car is perfect for your little drivers who want to start
 
 ⭐⭐⭐⭐⭐
 
-### Read More 👇
+### Read More 👇
 
-[Best Choice Products 12V Kids Ride On Truck](/reviews/best-choice-products-12v-kids-ride-on-truck)
+➡️[Best Choice Products 12V Kids Ride On Truck](/reviews/best-choice-products-12v-kids-ride-on-truck)
 
 ---
  
