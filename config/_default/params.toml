@@ -8,6 +8,7 @@
 colorScheme = "avocado"
 defaultAppearance = "light" # valid options: light or dark
 autoSwitchAppearance = false
+disablePathToLower = true
 
 enableSearch = true
 enableCodeCopy = true
