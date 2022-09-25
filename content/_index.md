@@ -118,7 +118,7 @@ Drive the Ride On Electric Bumper Car for Kids & Toddlers! Race around in style 
 
 ---
 
-## [Peg Perego John Deere Ground Force Tractor](/Reviews/Peg-Perego-John-Deere-Ground-Force-Tractor/)
+## [Peg Perego John Deere Ground Force Tractor](/Reviews/Peg-Perego-John-Deere-Ground-Force-Tractor)
 [![Peg-Perego-John-Deere-Ground-Force-Tractor](<https://images-na.ssl-images-amazon.com/images/I/810UpRxkd3L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Peg-Perego-Ground-Tractor-Trailer/dp/B002PEGT9U/?tag=kidselectricvehicle-20>)[![Peg-Perego-John-Deere-Ground-Force-Tractor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Peg-Perego-Ground-Tractor-Trailer/dp/B002PEGT9U/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
