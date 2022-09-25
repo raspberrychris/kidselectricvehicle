@@ -26,7 +26,7 @@ Your child won't be able to resist the ride on electric bumper car! This toddler
 
 ### Customers Say about this product
 
-> I brought it for my Grandson birthday it was easy to put together.And was remote control when you wanted to move it or show him how to drive.
+> I brought it for my Grandson's birthday it was easy to put together.And was remote control when you wanted to move it or show him how to drive.
 
 ### Pros and Cons
 
