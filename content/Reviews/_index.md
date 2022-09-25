@@ -9,7 +9,9 @@ cascade:
 ---
 
 {{< lead >}}
-Check out the kids electric vehicles that I have personally reviewed myself below.  In the reviews you will find the pros and cons, customer's opinions, product descriptions as well as photos of the kids electric cars.
+Check out the kids electric vehicles that I have personally reviewed myself below.  
+
+In the reviews you will find the pros and cons, customer's opinions, product descriptions as well as photos of the kids electric cars. 👇👇👇👇👇
 {{< /lead >}}
 
 ---
