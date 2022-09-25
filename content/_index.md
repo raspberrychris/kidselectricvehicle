@@ -51,7 +51,7 @@ This small but powerful car is perfect for your little drivers who want to start
 
 ---
  
-## [Ride On Electric Bumper Car For Kids](/Reviews/Ride-On-Electric-Bumper-Car-For-Kids/)
+## [Ride On Electric Bumper Car For Kids](/reviews/ride-on-electric-bumper-car-for-kids)
 [![Ride-On-Electric-Bumper-Car-For-Kids-&](<https://images-na.ssl-images-amazon.com/images/I/71b6ypuCqML._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Electric-Bumper-Toddlers-2-Speed-Girls/dp/B09BMC26P7/?tag=kidselectricvehicle-20>)[![Ride-On-Electric-Bumper-Car-For-Kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Electric-Bumper-Toddlers-2-Speed-Girls/dp/B09BMC26P7/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
@@ -118,7 +118,7 @@ Drive the Ride On Electric Bumper Car for Kids & Toddlers! Race around in style 
 
 ---
 
-## [Peg Perego John Deere Ground Force Tractor](/Reviews/Peg-Perego-John-Deere-Ground-Force-Tractor)
+## [Peg Perego John Deere Ground Force Tractor](/reviews/peg-perego-john-deere-ground-force-tractor)
 [![Peg-Perego-John-Deere-Ground-Force-Tractor](<https://images-na.ssl-images-amazon.com/images/I/810UpRxkd3L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Peg-Perego-Ground-Tractor-Trailer/dp/B002PEGT9U/?tag=kidselectricvehicle-20>)[![Peg-Perego-John-Deere-Ground-Force-Tractor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Peg-Perego-Ground-Tractor-Trailer/dp/B002PEGT9U/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
