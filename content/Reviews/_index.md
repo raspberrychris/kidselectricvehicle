@@ -1,6 +1,6 @@
 ---
 title: "Reviews"
-description: "Learn how to use Congo and its features."
+description: "We have reviewed some of our favorite kids electric cars and vehicles to give you all the information you need before making a purchase"
 
 cascade:
   showDate: false
@@ -9,11 +9,7 @@ cascade:
 ---
 
 {{< lead >}}
-Simple, yet powerful. Learn how to use Congo and its features.
+Check out the kids electric vehicles that I have personally reviewed myself below.  In the reviews you will find the pros and cons, customer's opinions, product descriptions as well as photos of the kids electric cars.
 {{< /lead >}}
-
-![Screenshots of Congo on an iPhone, iPad and MacBook](screenshot.png)
-
-This section contains everything you need to know about Congo. If you're new, check out the [Installation]({{< ref "docs/installation" >}}) guide to begin or visit the [Samples]({{< ref "samples" >}}) section to see what Congo can do.
 
 ---
