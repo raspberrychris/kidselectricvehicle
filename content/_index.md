@@ -16,7 +16,7 @@ Ok let's get into it!
 
 ![kids-electric-cars](/kids-electric-toy-cars.png)
 
-## [ Best Choice Products 12V Kids Ride On Truck - (⭐⭐ Our Top Pick for 2022! ⭐⭐)](/Reviews/Best-Choice-Products-12V-Kids-Ride-On-Truck/)
+## [ Best Choice Products 12V Kids Ride On Truck - (⭐⭐ Our Top Pick for 2022! ⭐⭐)](/reviews/best-choice-products-12v-kids-ride-on-truck)
 [![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://images-na.ssl-images-amazon.com/images/I/819EixX48RS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B07YC4VCYH/?tag=kidselectricvehicle-20>)[![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B07YC4VCYH/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
@@ -153,7 +153,7 @@ The Peg Perego John Deere Ground Force Tractor with Trailer is a replica of the 
 
 ---
 
-## [Kid Trax Toddler Mouse Quad Ride-On](/Reviews/Kid-Trax-Toddler-Mouse-Quad-Ride-On/)
+## [Kid Trax Toddler Mouse Quad Ride-On](/reviews/kid-trax-toddler-mouse-quad-ride-pn)
 [![Kid-Trax-Toddler-Disney-Minnie-Mouse-Quad-Ride-On](<https://images-na.ssl-images-amazon.com/images/I/81KBrr1dOIL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Trax-Toddler-Electric-Included/dp/B074L2ZXKB/?tag=kidselectricvehicle-20>)[![Kid-Trax-Toddler-Mouse-Quad-Ride-On](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Trax-Toddler-Electric-Included/dp/B074L2ZXKB/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
