@@ -8,15 +8,15 @@ description: We review the best Kids Electric Vehicles so you can choose the bes
 We have checked out all of the the best Kids Electric Vehicles so you can choose the best ones for your little ones.
 {{< /lead >}}
 
-Hi welcome to [Kids Electric Vehicle](https://kidselectricvehicle.com) 🏎  🚜  🏍.
+Hi welcome to [Kids Electric Vehicle](https://kidselectricvehicle.com) 🏎  🚜  🏍..  This site was started by Chris in 2022 to showcase some of the best kids electric cars and vehicles that you can get your little ones.
 
-Kids Electric Vehicle is on a mission to help you find the best kids electric cars out there.
+Kids Electric Vehicle is on a mission to help you find the best kids electric cars out there, we have done all the research so you don't have to and have compiled a list of our favorite kid's electric cars.
 
-
+Ok let's get into it!
 
 ![kids-electric-cars](/kids-electric-toy-cars.png)
 
-## [ Best Choice Products 12V Kids Ride On Truck - (⭐⭐ Our Top Pick for 2022! ⭐⭐)](/Reviews/Best-Choice-Products-12V-Kids-Ride-On-Truck)
+## [ Best Choice Products 12V Kids Ride On Truck - (⭐⭐ Our Top Pick for 2022! ⭐⭐)](/Reviews/Best-Choice-Products-12V-Kids-Ride-On-Truck/)
 [![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://images-na.ssl-images-amazon.com/images/I/819EixX48RS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B07YC4VCYH/?tag=kidselectricvehicle-20>)[![Best-Choice-Products-12V-Kids-Ride-On-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B07YC4VCYH/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
@@ -51,7 +51,7 @@ This small but powerful car is perfect for your little drivers who want to start
 
 ---
  
-## [Ride On Electric Bumper Car For Kids](/Reviews/Ride-On-Electric-Bumper-Car-For-Kids)
+## [Ride On Electric Bumper Car For Kids](/Reviews/Ride-On-Electric-Bumper-Car-For-Kids/)
 [![Ride-On-Electric-Bumper-Car-For-Kids-&](<https://images-na.ssl-images-amazon.com/images/I/71b6ypuCqML._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Electric-Bumper-Toddlers-2-Speed-Girls/dp/B09BMC26P7/?tag=kidselectricvehicle-20>)[![Ride-On-Electric-Bumper-Car-For-Kids](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Electric-Bumper-Toddlers-2-Speed-Girls/dp/B09BMC26P7/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
@@ -118,7 +118,7 @@ Drive the Ride On Electric Bumper Car for Kids & Toddlers! Race around in style 
 
 ---
 
-## [Peg Perego John Deere Ground Force Tractor](/Reviews/Peg-Perego-John-Deere-Ground-Force-Tractor)
+## [Peg Perego John Deere Ground Force Tractor](/Reviews/Peg-Perego-John-Deere-Ground-Force-Tractor/)
 [![Peg-Perego-John-Deere-Ground-Force-Tractor](<https://images-na.ssl-images-amazon.com/images/I/810UpRxkd3L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Peg-Perego-Ground-Tractor-Trailer/dp/B002PEGT9U/?tag=kidselectricvehicle-20>)[![Peg-Perego-John-Deere-Ground-Force-Tractor](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Peg-Perego-Ground-Tractor-Trailer/dp/B002PEGT9U/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
@@ -153,7 +153,7 @@ The Peg Perego John Deere Ground Force Tractor with Trailer is a replica of the 
 
 ---
 
-## [Kid Trax Toddler Mouse Quad Ride-On](/Reviews/Kid-Trax-Toddler-Mouse-Quad-Ride-On)
+## [Kid Trax Toddler Mouse Quad Ride-On](/Reviews/Kid-Trax-Toddler-Mouse-Quad-Ride-On/)
 [![Kid-Trax-Toddler-Disney-Minnie-Mouse-Quad-Ride-On](<https://images-na.ssl-images-amazon.com/images/I/81KBrr1dOIL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Trax-Toddler-Electric-Included/dp/B074L2ZXKB/?tag=kidselectricvehicle-20>)[![Kid-Trax-Toddler-Mouse-Quad-Ride-On](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Trax-Toddler-Electric-Included/dp/B074L2ZXKB/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
@@ -188,7 +188,7 @@ The Kid Trax Toddler Quad Ride-On toy is a fun and adventurous ride-on toy that 
 
 ---
  
-## [Best Choice Products Kids 12V Ride On Truck](/Reviews/Best-Choice-Products-Kids-12V-Ride-On-Truck)
+## [Best Choice Products Kids 12V Ride On Truck](/Reviews/Best-Choice-Products-Kids-12V-Ride-On-Truck/)
 [![Best-Choice-Products-Kids-12V-Ride-On-Truck](<https://images-na.ssl-images-amazon.com/images/I/91eBsYH9aGL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B072865HYJ/?tag=kidselectricvehicle-20>)[![Best-Choice-Products-Kids-12V-Ride-On-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Best-Choice-Products-Control-Suspension/dp/B072865HYJ/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
@@ -257,7 +257,7 @@ The Razor MX350 dirt bike is perfect for riders of all ages. With authentic moto
 
 ---
  
-## [Kid Trax Cat Toddler Quad Ride On Toy](/Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy)
+## [Kid Trax Cat Toddler Quad Ride On Toy](/Reviews/Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy)
 [![Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy](<https://images-na.ssl-images-amazon.com/images/I/81eYYJXuD-S._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kid-Trax-Toddler-Battery-KT1575AZ/dp/B087N12241/?tag=kidselectricvehicle-20>)[![Kid-Trax-Cat-Toddler-Quad-Ride-On-Toy](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kid-Trax-Toddler-Battery-KT1575AZ/dp/B087N12241/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
