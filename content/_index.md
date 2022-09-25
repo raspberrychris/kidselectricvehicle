@@ -111,27 +111,9 @@ The Peg Perego John Deere Ground Force Tractor with Trailer is a replica of the 
 
 ⭐⭐⭐⭐⭐
 
-### Technical Details
+### Read More 👇
 
-| Brand                 | Peg Perego                |
-|-----------------------|---------------------------|
-| Material              | Plastic                   |
-| Size                  | Miniature                 |
-| Item Weight           | 50 Pounds                 |
-| Item Dimensions LxWxH | 24.5 x 26.5 x 67.5 inches |
-| Sub Brand             | John Deere                |
-
-### Customers Say about this product
-
-> This is brilliant my grandson loves this
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 The tractor looks and functions great overall.|👉 There were a lot of small parts and it was hard to tell which part went where|
-| 👉 It is a durable product that will last for years.|👉 Poor Quality Control: Once I finally got the tractor assembled, I noticed that the paint job was very sloppy and there were some areas where the plastic was not even smooth.|
-| 👉 It is easy to assemble and my son loves it!|👉 Fragile Parts: Some of the parts on the tractor are quite fragile and break easily.|
+➡️[Peg Perego John Deere Ground Force Tractor](/reviews/peg-perego-john-deere-ground-force-tractor)
 
 ---
 
