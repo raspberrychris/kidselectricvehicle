@@ -4,6 +4,7 @@
 
 theme = "congo"
 defaultContentLanguage = "en"
+disablePathToLower = true
 
 enableRobotsTXT = true
 paginate = 15
