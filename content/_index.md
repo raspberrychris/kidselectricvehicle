@@ -127,27 +127,9 @@ The Razor MX350 dirt bike is perfect for riders of all ages. With authentic moto
 
 ⭐⭐⭐⭐⭐
 
-### Technical Details
+### Read More 👇
 
-| Brand                 | Razor                 |
-|-----------------------|-----------------------|
-| Material              | Alloy Steel           |
-| Size                  | 10-12"                |
-| Item Weight           | 25 Kilograms          |
-| Item Dimensions LxWxH | 24.5 x 31 x 44 inches |
-| Sub Brand             | Razor                 |
-
-### Customers Say about this product
-
-> Boys (5 &3) ride them daily. They have lasted months with no issues.
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 Easy to assemble|👉 It is not a fast bike, so if you are looking for speed, this is not the bike for you.|
-| 👉 Long battery life|👉 The battery life is shorter than some of the other electric mini dirt bikes on the market.|
-| 👉 Runs well on both off-road and on-road terrain|👉 It can be difficult to assemble, so if you are not mechanically inclined, it might be best to have someone else put it together for you.|
+➡️[Razor Dirt Rocket Electric Motocross Off-Road Bike](/reviews/razor-dirt-rocket-electric-motocross-off-road-bike)
 
 ---
  
