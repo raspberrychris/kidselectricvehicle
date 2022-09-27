@@ -117,7 +117,7 @@ Get your kids their own vehicle with the Best Choice Products Kids 12V Ride On T
 ---
 
 ## [Razor Dirt Rocket Electric Motocross Off-Road Bike](/reviews/razor-dirt-rocket-electric-motocross-off-road-bike)
-[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike](<https://images-na.ssl-images-amazon.com/images/I/71IiAdV95KL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)
+[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike](<https://m.media-amazon.com/images/I/61up06aDn5S._AC_SX522_.jpg>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)[![Razor-Dirt-Rocket-Electric-Motocross-Off-Road-Bike](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Continuous-Air-filled-Hand-operated-Chain-driven/dp/B0007MZV3C/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
