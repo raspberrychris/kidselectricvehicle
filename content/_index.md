@@ -222,7 +222,7 @@ Our ride-on car for kids is a must-have for any young Lamborghini enthusiast. Th
 ---
 
 ## [Razor Crazy Cart Shift For Kids Ages 6+](/Razor-Crazy-Cart-Shift-For-Kids-Ages-6+)
-[![Razor-Crazy-Cart-Shift-For-Kids-Ages-6+](<https://images-na.ssl-images-amazon.com/images/I/71-f0J2wwyS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Razor-Crazy-Cart-Shift-2-0/dp/B083G8M85R/?tag=kidselectricvehicle-20>)[![Razor-Crazy-Cart-Shift-For-Kids-Ages-6+](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Crazy-Cart-Shift-2-0/dp/B083G8M85R/?tag=kidselectricvehicle-20>)
+[![Razor-Crazy-Cart-Shift-For-Kids-Ages-6+](<https://m.media-amazon.com/images/I/717OYZvaqYL._AC_SX522_.jpg>)](<https://www.amazon.com/Razor-Crazy-Cart-Shift-2-0/dp/B083G8M85R/?tag=kidselectricvehicle-20>)[![Razor-Crazy-Cart-Shift-For-Kids-Ages-6+](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Razor-Crazy-Cart-Shift-2-0/dp/B083G8M85R/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
