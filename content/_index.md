@@ -187,7 +187,7 @@ The Best Choice Products 12V Kids Ride On Truck Car is perfect for your little r
 ---
 
 ## [Kidzone Kids Electric Ride On 12V Licensed Lamborghini](/reviews/kidzone-kids-electric-ride-on-12v-licensed-lamborghini)
-[![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://images-na.ssl-images-amazon.com/images/I/717OYZvaqYL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Lamborghini-Aventador-Headlights-Hydraulic/dp/B097DK9H93/?tag=kidselectricvehicle-20>)[![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Lamborghini-Aventador-Headlights-Hydraulic/dp/B097DK9H93/?tag=kidselectricvehicle-20>)
+[![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://images-na.ssl-images-amazon.com/images/I/71823o+AgRS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Kidzone-Lamborghini-Aventador-Headlights-Hydraulic/dp/B097DK9H93/?tag=kidselectricvehicle-20>)[![Kidzone-Kids-Electric-Ride-On-12V-Licensed-Lamborghini](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Kidzone-Lamborghini-Aventador-Headlights-Hydraulic/dp/B097DK9H93/?tag=kidselectricvehicle-20>)
 
 ### Product Description 
 
