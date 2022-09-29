@@ -1,6 +1,6 @@
 ---
 title: "Contact"
-description: "Learn how to use Congo and its features."
+description: "Contact Kids Electric Vehicle"
 
 cascade:
   showDate: false

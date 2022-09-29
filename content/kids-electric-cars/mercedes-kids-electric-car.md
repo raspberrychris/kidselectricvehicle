@@ -5,7 +5,7 @@ description: We pick the best Kids Electric Cars so you can choose the best ones
 ---
 
 {{< lead >}}
-We have checked out all of the the best Kids Electric Cars so you can choose the best ones for your little ones.
+Get Your Kids their first Benz!
 {{< /lead >}}
 
 Hi welcome to [Kids Electric Vehicle](https://kidselectricvehicle.com)

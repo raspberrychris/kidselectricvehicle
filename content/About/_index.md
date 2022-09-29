@@ -9,7 +9,7 @@ cascade:
 ---
 
 {{< lead >}}
-I started Kids Electric Vehicle as I wanted people to make the best decision when it comes to buying kids electric cars, tractors and other kids vehicles.  
+Hi there! I started Kids Electric Vehicle as I wanted people to make the best decision when it comes to buying kids electric cars, tractors and other kids vehicles.  
 {{< /lead >}}
 
 ![kids-electric-cars](/kids-electric-toy-cars.png)

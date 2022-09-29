@@ -215,9 +215,9 @@ Our ride-on car for kids is a must-have for any young Lamborghini enthusiast. Th
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The parental remote makes it very easy to operate the toy|👉 Poorly made: This product is poorly made, as evidenced by the fact that the weld connecting the parental steering motor to the steering wheel broke within the first week|
+| 👉 It is a fun ride on toy for both kids and adults|👉 Expensive: This toy is relatively expensive, particularly considering its poor quality|
+| 👉 The 3d printer makes it possible to create a steering column clamp that eliminates any worries about the parental steering not working properly|👉 Not durable: This toy is not very durable, as evidenced by the fact that a weld broke within the first week of use|
 
 ---
 
