@@ -337,28 +337,9 @@ Let your little one have their own Lamborghini! This toy car is officially licen
 
 ⭐⭐⭐⭐⭐
 
-### Technical Details
+### Read More 👇
 
-| Brand                 | Kidzone                      |
-|-----------------------|------------------------------|
-| Material              | Polypropylene                |
-| Size                  | 42.52 x 24.41 x 15.75 inches |
-| Item Weight           | 26.68 Pounds                 |
-| Item Dimensions LxWxH | 42.52 x 24.41 x 15.75 inches |
-| Assembly Required     | Yes                          |
-
-
-### Customers Say about this product
-
-> This car was easy to put together, remote is handy when my daughter doesn’t want to drive and it’sa good product for the price. She loves it and it makes taking walks with her much easier! I recommend this for kids and parents.
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+➡️[Kidzone Kids Electric Ride On 12V Licensed Lamborghini](/reviews/kidzone-kids-electric-ride-on-12v-licensed-lamborghini)
 
 ---
  
@@ -389,7 +370,6 @@ The Mercedes Benz G63 Car for Kids is the perfect miniature car for your little 
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
-
 
 ### Read More 👇
 
