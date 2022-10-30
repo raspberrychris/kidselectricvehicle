@@ -250,9 +250,9 @@ Race and drift your way to victory, just like the professionals! This electric d
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Ultimate responsiveness and control with every turn |👉 The 12V battery may not be powerful enough for longer rides or for bigger kids |
+| 👉 Fixed incline, rear caster wheels provide the right balance of drive vs. drift |👉 The go kart may be difficult to control at high speeds, making it unsafe. |
+| 👉 Easy to assemble|👉 This go kart may be too small for some kids, especially if they are tall or have long legs.|
 
 ---
 
