@@ -388,9 +388,9 @@ The Costzon Ride on Car is perfect for children who are ready to take their driv
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Seats two children: The Land Rover ride-on toy comfortably seats two children, so your little ones can cruise around together. |👉 The car only goes in reverse: One of the biggest complaints about this toy is that it only goes in reverse. So, if your child is driving and wants to turn around or go back up a hill, they're out of luck. |
+| 👉 Manual and remote control options: The car has both manual and remote control options, so your child can drive themselves or you can take control when necessary.|👉 The car is very slow: Another complaint is that the car is very slow. It's not going to win any races against other ride-on toys and can be frustrating for kids who want to go faster. |
+| 👉 Features 2-wheel suspension, treaded tires: The car features 2-wheel suspension and treaded tires for a smooth ride.|👉 The tires are made of cheap plastic and can break easily: This isn't a huge problem if you're careful with the car, but some parents have reported that the tires are made of cheap plastic and can break easily if they hit something too hard or get punctured by a sharp object.|
 
 ---
 
