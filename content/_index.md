@@ -563,9 +563,9 @@ Take the wheel of this rugged and ready-for-anything Jeep Wrangler with a cool H
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Rugged design can take on any terrain|👉 Limited range: The 12V battery provides enough power for 5 mph (8 km/h) of max. speed in forward and 2.5 mph (4 km/h) of max. |
+| 👉 Hot Wheels edition is cool and stylish|👉 Limited features: This Power Wheels car for kids is designed for use on hard surfaces and grass, and does not include features such as Bluetooth or other connectivity options that might be available on other models.|
+| 👉 12V battery provides plenty of power|👉 Noisy operation: This car makes engine noises when in operation, which some users may find annoying or disruptive|
 
 ---
 
