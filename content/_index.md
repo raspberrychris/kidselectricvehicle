@@ -597,9 +597,9 @@ Give your kid the best in driving with this incredible Dodge Challenger ride-on 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Realistic features: This kids electric car has realistic features that make it look almost identical to the real thing.  |👉 The car is not actually driveable, which may disappoint some kids.|
+| 👉 Car horn and other sounds: The headlights, car horn and other sounds add to the excitement of driving around your home.|👉 It is made mostly of plastic, so it might feel flimsy compared to a real car.|
+| 👉 Durable construction: This kids electric car is built to last with its durable construction.|👉 The battery life is only about an hour, so kids will need to take breaks often while playing with it.|
 
 ---
 
