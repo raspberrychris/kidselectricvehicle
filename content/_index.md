@@ -458,9 +458,9 @@ A new and improved (2018) version of the Radio Flyer, the Grow with Me Racer Kid
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The 2WD/4WD switchable system is easy for your child to use.|👉 Limited Speed: The maximum speed of the ANPABO 24V 4WD Ride on Car Truck is only 5 mph, which may be too slow for some children.|
+| 👉 The 19" capacious seat and 14" large wheelbase make it comfortable for children over 3 years old and under 4.5 ft tall.|👉 Limited Range: The car has a limited range of only 15 miles before it needs to be recharged, which may not be enough for some kids to use it for an extended period of time.|
+| 👉 The electric ride on truck is durable and can withstand rough play by children.|👉 Not Suitable for All Weather Conditions: This car is not suitable for use in all weather conditions as it is not waterproof and should not be used in wet or snowy conditions.|
 
 ---
  
