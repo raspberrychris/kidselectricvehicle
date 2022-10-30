@@ -528,9 +528,9 @@ The John Deere Gator XUV lets kids explore the outdoors with a vehicle that comb
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The John Deere Gator XUV is an electric quad that features 2 speeds (2 1/2 and 5 mph), a reverse gear, accelerator pedal with automatic brakes and an extra-large dumpbed with tailgate for loading and unloading toys.|👉 Limited to Two Speeds: The John Deere Gator XUV is limited to two speeds, 2 1/2 and 5 mph. This may be too slow for some kids who are used to faster vehicles.|
+| 👉 The adjustable seat allows children to grow into the Gator and enjoy more time playing.|👉 No Suspension: The Gator XUV does not have suspension, which means that it may be uncomfortable to ride on rough terrain.|
+| 👉 This electric quad also has 4x4 capabilities, making it easier for kids to explore the outdoors. |👉 Not Suitable for All Weather Conditions: The Gator XUV is not suitable for all weather conditions due to its lack of a roof or windshield. This could make riding in the rain or snow difficult and dangerous.|
 
 ---
 
