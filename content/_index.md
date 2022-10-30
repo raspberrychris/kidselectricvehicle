@@ -285,9 +285,9 @@ The Land Rover ride-on toy by Best Choice Products is a 2-seater, officially lic
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Officially licensed by Land Rover.|👉 Can't be used on all types of terrain: This Land Rover toy is not made to be driven on all types of terrain. It can only be driven on smooth surfaces like concrete or asphalt.|
+| 👉 Double seating for two children.|👉 The car is battery operated and will need to be recharged after use: The car needs to be recharged after every use, which can take up to 8 hours for a full charge.|
+| 👉 Both manual and remote controls included.|👉 The remote control may not work from long distances: The remote control that comes with the Land Rover may not work from long distances, so you may have to stay close by when your child is using it.|
 
 ---
 
