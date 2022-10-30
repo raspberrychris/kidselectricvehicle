@@ -493,9 +493,9 @@ Give your kids the ultimate driving experience with the Costzon Kids ATV. This e
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Electric: The Costzon Kids ATV is battery powered, so you can take it almost anywhere.|👉 Not Suitable for All Weather Conditions: The Costzon Kids ATV is not suitable for use in colder regions as it is battery powered.|
+| 👉 Quality construction: The high-quality construction and safety features make it a great gift for any child who is ready to drive!|👉 High Cost: The price of the electric vehicle is high compared to other similar products on the market.|
+| 👉 Safety features: The high-quality construction and safety features make it a great gift for any child who is ready to drive!|👉 Limited Range: The range of the vehicle is limited by its battery power. |
 
 ---
 
