@@ -16,7 +16,7 @@ Together, critic Jonathan Gold, food scholar Evan Kleiman, and chefs Ray Garcia,
 
 **RG:** My personal approach to food is more of a craftsman. I like having my tools in hand, sort of creating and building, and my approach is much more trial and error. It’s part social scientist, and part repair person or builder. I put food out, and wait for the reaction, and see what we can push, what we can improve.
 
-![resources/assets/images/test//maarten-van-den-heuvel-400626-unsplash.jpg](/resources/assets/images/test/maarten-van-den-heuvel-400626-unsplash.jpg)
+![resources/assets/images/test//maarten-van-den-heuvel-400626-unsplash.jpg](/resources/_gen/images/test/maarten-van-den-heuvel-400626-unsplash.jpg)
 
 In the Getty Center auditorium for the recent “There Will Be Food“ panel.
 
@@ -24,7 +24,7 @@ In the Getty Center auditorium for the recent “There Will Be Food“ panel.
 
 **CS:** The highest point in my life is being with close family and friends, in the backyard over a fire, cooking over the course of many hours, sitting under the sky, and just filling this space with so much warmth. When I’m cooking there, I feel much more like an artist than when I worked in the highest-concept restaurants. They are like museums of food, accessible only with a certain level of literacy on the part of the diner, with a certain level of cultural experience and background.
 
-![resources/assets/images/test//edgar-castrejon-459814-unsplash.jpg](/resources/assets/images/test/edgar-castrejon-459814-unsplash.jpg)
+![resources/assets/images/test//edgar-castrejon-459814-unsplash.jpg](/resources/_gen/images/test/edgar-castrejon-459814-unsplash.jpg)
 
 Tamale with pepitas at Taco María in Costa Mesa
 
@@ -44,7 +44,7 @@ Tamale with pepitas at Taco María in Costa Mesa
 
 **BL:** I think mole is a really good one. A lot of people think of it as a chocolate sauce, and yes, it has chocolate, but it also has like 18 other things. I always recommend three things: mole, the barbacoa, and the chiles rellenos at my restaurant, just because I think they are universally delicious.
 
-![resources/assets/images/test//christine-siracusa-363257-unsplash.jpg](/resources/assets/images/test/christine-siracusa-363257-unsplash.jpg)
+![resources/assets/images/test//christine-siracusa-363257-unsplash.jpg](/resources/_gen/images/test/christine-siracusa-363257-unsplash.jpg)
 
 Dishes at Broken Spanish, in Downtown LA.
 
