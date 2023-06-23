@@ -27,7 +27,7 @@ Hi welcome to [Kids Electric Vehicle](https://kidselectricvehicle.com)
 
 ### Customers Say about this product
 
-> 
+> "It's fantastic value for money, love how easy it is to use."
 
 ### Pros and Cons
 
