@@ -551,7 +551,7 @@ Let your little one have their own Lamborghini! This toy car is officially licen
 
 ### Product Description 
 
-The sopbost 12V 10Ah Ride-on UTV with Remote for Girls 4X4 Off-Road Truck Ride on Car to Drive Buggy 4WD is the perfect way to make your kid feel like a grown up. This toy car comes with 4pcs 30W drive motors and traction tires that can help them ride on different terrains, while they also have the option of switching between 2-wheel drive and 4-wheel drive modes. The toy car also comes with a
+The sopbost 12V 10Ah Ride-on UTV with Remote for Girls 4X4 Off-Road Truck Ride on Car to Drive Buggy 4WD is the perfect way to make your kid feel like a grown up. This toy car comes with 4pcs 30W drive motors and traction tires that can help them ride on different terrains, while they also have the option of switching between 2-wheel drive and 4-wheel drive modes. 
 
 ### Our Rating For This Product
 
@@ -1141,7 +1141,7 @@ With a spacious seat and safety belt, the u URideon Ride-on Bumper Car is safe, 
 
 ### Product Description 
 
-Little construction workers in training will love this authentically-styled CAT ATV, and it’s the perfect ride-on toy. This ride-on has realistic horn and engine sounds that add to the playtime experience. With LED headlights and foot pedal acceleration, your little one will feel like they are driving a real vehicle. The best part is that this toy can go in forward or reverse at 2.5 MPH, making it perfect for maneuvering through tight spaces. Comes with a
+Little construction workers in training will love this authentically-styled CAT ATV, and it’s the perfect ride-on toy. This ride-on has realistic horn and engine sounds that add to the playtime experience. With LED headlights and foot pedal acceleration, your little one will feel like they are driving a real vehicle. The best part is that this toy can go in forward or reverse at 2.5 MPH, making it perfect for maneuvering through tight spaces. 
 
 ### Our Rating For This Product
 
