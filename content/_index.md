@@ -27,6 +27,28 @@ This small but powerful car is perfect for your little drivers who want to start
 
 ⭐⭐⭐⭐⭐
 
+### Technical Details
+
+| Product Dimensions           | 39.25 x 26 x 26 inches |
+|------------------------------|------------------------|
+| Item Weight                  | 32 pounds              |
+| Manufacturer recommended age | 3 years and up         |
+| Manufacturer                 | Best Choice Products   |
+
+### Customers Say about this product
+
+> This was the best gift for my son! Set up wasn't too difficult, the size works well for us since we store it in the house and didn't want it taking up too much space.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 The truck's battery life is great and lasts more than 3 miles|👉 The remote control's battery doesn't last long and needs to be changed quite often|
+| 👉 Parent remote control allows you to take control of the direction and speed when needed|👉 While this truck runs perfectly on smooth roads, it struggles on grassy terrain and dirt trails|
+| 👉 Easy to put together|👉 Bluetooth volume is too low so kids won't enjoy the speakers as much as they should|
+
+---
+
 ### Read More 👇
 
 ➡️[Best Choice Products 12V Kids Ride On Truck](/reviews/best-choice-products-12v-kids-ride-on-truck)
@@ -41,6 +63,28 @@ Your child won't be able to resist the ride on electric bumper car! This toddler
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Product Dimensions           | 23 x 23 x 18 inches |
+|------------------------------|---------------------|
+| Item Weight                  | 18.46 pounds        |
+| Manufacturer recommended age | 18 months - 8 years |
+| Manufacturer                 | Bumper Buddy        |
+
+### Customers Say about this product
+
+> I was overzealous and sent this to my cousin immediately after she had her baby. She’s now old enough to enjoy it and she absolutely loves it.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 You can get many hours of use on a single charge|👉 It makes a lot of noise when driving|
+| 👉 Car is sturdy and easy to assemble|👉 The music and sounds are very loud but you can turn them off if you want|
+| 👉 Remote control only driving means you can steer for your kid if they aren't old enough to do it themself|👉 It would have been great if they had added a button to turn off the lights|
+
+---
 
 ### Read More 👇
 
@@ -59,6 +103,29 @@ Drive the Ride On Electric Bumper Car for Kids & Toddlers! Race around in style 
 
 ⭐⭐⭐⭐⭐
 
+### Technical Details
+
+| Product Dimensions           | 31.3 x 25.8 x 8.5 inches             |
+|------------------------------|--------------------------------------|
+| Item Weight                  | 19.84 pounds                         |
+| Manufacturer recommended age | 6 - 10 years                         |
+| Batteries                    | 1 12V batteries required. (included) |
+| Manufacturer                 | Rollplay                             |
+
+### Customers Say about this product
+
+> I first bought the pink and now have bought the white one. Such a good riding toy for my grandkids and neighbor kids. Sturdy, fun and worth the money.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 It's sturdy and safe for kids so they won't fall out or tip over even when driving at top speed|👉 Some units come with defective batteries that either won't charge or don't last long|
+| 👉 Charges fast and battery lasts long before needing another charge|👉 Wings seldom get stuck in cold weather if not used for a good while|
+| 👉 Takes only a few minutes for kids to stabilize themselves on this toy|👉 Chain falls off while riding on some units|
+
+---
+
 ### Read More 👇
 
 ➡️[Rollplay Nighthawk Storm Electric Ride On Toy](/reviews/rollplay-nighthawk-storm-electric-ride-on-toy)
@@ -75,6 +142,29 @@ The Peg Perego John Deere Ground Force Tractor with Trailer is a replica of the 
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Product Dimensions           | 24.5 x 26.5 x 67.5 inches            |
+|------------------------------|--------------------------------------|
+| Item Weight                  | 50 pounds                            |
+| Manufacturer recommended age | 36 months - 7 years                  |
+| Batteries                    | 1 12V batteries required. (included) |
+| Manufacturer                 | Peg Perego                           |
+
+### Customers Say about this product
+
+> We gave this to my Grandson for his 4th birthday! He never wants to get off of it. He got right on it and knew exactly what to do to make it go.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Battery life is great|👉 Assembly instructions leave a lot to be desired|
+| 👉 Drives well on lawns, grassy, and gravel terrain|👉 FM radio has low-quality speakers|
+| 👉 Has a lockout feature that you can use to prevent your kid from driving at the highest speed when they're learning to drive|👉 Battery takes forever to charge|
+
+---
 
 ### Read More 👇
 
@@ -93,6 +183,29 @@ The Kid Trax Toddler Quad Ride-On toy is a fun and adventurous ride-on toy that 
 
 ⭐⭐⭐⭐⭐
 
+### Technical Details
+
+| Product Dimensions           | 27.5 x 17 x 20 inches                             |
+|------------------------------|---------------------------------------------------|
+| Item Weight                  | 6.2 pounds                                        |
+| Manufacturer recommended age | 18 months - 3 years                               |
+| Batteries                    | 1 Product Specific batteries required. (included) |
+| Manufacturer                 | Kid Trax                                          |
+
+### Customers Say about this product
+
+> This ride was just the thing for our Minnie Mouse loving grandchild. She enjoys riding it through the house and on the sidewalk.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Easy to put together|👉 No remote control means you'll need to help your kid drive if they aren't old enough to drive themself|
+| 👉 Battery stays charged for days even with daily use|👉 Battery needs to be taken out for recharging|
+| 👉 Easy to operate with the press of a single button|👉 Moderately sturdy|
+
+---
+
 ### Read More 👇
 
 ➡️[Kid Trax Toddler Mouse Quad Ride-On](/reviews/kid-trax-toddler-mouse-quad-ride-on)
@@ -109,6 +222,28 @@ Get your kids their own vehicle with the Best Choice Products Kids 12V Ride On T
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Product Dimensions           | 45 x 31 x 31 inches  |
+|------------------------------|----------------------|
+| Item Weight                  | 45 pounds            |
+| Manufacturer recommended age | 3 years and up       |
+| Manufacturer                 | Best Choice Products |
+
+### Customers Say about this product
+
+> This ride on is simply the greatest in entertainment for our 3 year old grandson. He absolutely loves just going for a ride.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Well packaged truck which means less chance of getting a defective unit|👉 A few exposed wires pose a risk of damage|
+| 👉 Straightforward assembly booklet makes putting it together almost effortless|👉 Speed can only be changed from the parental remote control|
+| 👉 Parental remote control lets you take the reins whenever necessary|👉 High risk of battery failure due to flawed charging system|
+
+---
 
 ### Read More 👇
 
@@ -127,6 +262,29 @@ The Razor MX350 dirt bike is perfect for riders of all ages. With authentic moto
 
 ⭐⭐⭐⭐⭐
 
+### Technical Details
+
+| Product Dimensions           | 24.5 x 31 x 44 inches                          |
+|------------------------------|------------------------------------------------|
+| Item Weight                  | 55 pounds                                      |
+| Manufacturer recommended age | 13 years and up                                |
+| Batteries                    | 1 Lithium Metal batteries required. (included) |
+| Manufacturer                 | Razor USA, LLC                                 |
+
+### Customers Say about this product
+
+> Safe, easy to use, reliable, great buy for young kids who are just starting!
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Perfect for kids that are learning how to ride|👉 Can't ride through deep sand or climb steep hills|
+| 👉 Works well on grass and dirt roads albeit at reduced speed|👉 Wheels lack suspensions|
+| 👉 Low seat height means little kids can touch the ground while sitting|👉 Battery isn't easy to access for swapping purposes|
+
+---
+
 ### Read More 👇
 
 ➡️[Razor Dirt Rocket Electric Motocross Off-Road Bike](/reviews/razor-dirt-rocket-electric-motocross-off-road-bike)
@@ -143,6 +301,28 @@ Kid Trax Cat Toddler Quad Ride-on Toy is perfect for outdoor adventures in the d
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Product Dimensions           | 26.77 x 15.75 x 17.72 inches |
+|------------------------------|------------------------------|
+| Item Weight                  | 13.2 pounds                  |
+| Manufacturer recommended age | 18 - 30 months               |
+| Manufacturer                 | Pacific Cycle, Inc.          |
+
+### Customers Say about this product
+
+> My grandson loves this. The battery stays up for a long time and It was a great price.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Assembly process is trouble-free|👉 Plastic wheels have low traction on grass, smooth floors, and sandy ground|
+| 👉 Decent battery life|👉 Gets stuck frequently and doesn't reverse|
+| 👉 Moves at a suitable speed for toddlers|👉 Cheaply made so quality is on the low side|
+
+---
 
 ### Read More 👇
 
@@ -302,6 +482,28 @@ The Costzon Ride On Truck is perfect for kids 2-6 years old with a height of up 
 
 ⭐⭐⭐⭐⭐
 
+### Technical Details
+
+| Product Dimensions           | 46.5 x 31 x 29 inches |
+|------------------------------|-----------------------|
+| Item Weight                  | 45 pounds             |
+| Manufacturer recommended age | 36 months - 7 years   |
+| Manufacturer                 | Costzon               |
+
+### Customers Say about this product
+
+> I would recommend this to friends and other parents for a cheap way to have fun both parent and child
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Sturdy and lightweight truck for kids and toddlers|👉 Unclear setup instructions|
+| 👉 Able to drive forwards and back up|👉 Assembly can take hours due to parts not lining up|
+| 👉 Comes with a remote control for parents|👉 The back bar pops out too easily|
+
+---
+
 ### Read More 👇
 
 ➡️[Costzon Ride On Truck 12V Battery Powered Electric](/reviews/costzon-ride-on-truck-12v-battery-powered-electric)
@@ -318,6 +520,28 @@ Let your little one have their own Lamborghini! This toy car is officially licen
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Product Dimensions           | 42.52 x 24.41 x 15.75 inches |
+|------------------------------|------------------------------|
+| Item Weight                  | 26.7 pounds                  |
+| Manufacturer recommended age | 3 years and up               |
+| Manufacturer                 | Kidzone                      |
+
+### Customers Say about this product
+
+> I love how it's easy to assemble, great for children to access and play right away. I love the bluetooth connection too.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Remote control lets you move the car for toddlers that aren't old enough to drive it|👉 Loud engine and horn can scare kids|
+| 👉 Bluetooth radio is a nice touch|👉 A bit expensive compared to similar products|
+| 👉 Package comes complete with all the parts needed for assembly|👉 Small and easily outgrown|
+
+---
 
 ### Read More 👇
 
@@ -336,6 +560,28 @@ The sopbost 12V 10Ah Ride-on UTV with Remote for Girls 4X4 Off-Road Truck Ride o
 
 ⭐⭐⭐⭐⭐
 
+### Technical Details
+
+| Package Dimensions           | 46 x 25.2 x 15.6 inches |
+|------------------------------|-------------------------|
+| Item Weight                  | 57.3 pounds             |
+| Manufacturer recommended age | 3 years and up          |
+| Manufacturer                 | Sopbost                 |
+
+### Customers Say about this product
+
+> It handles good and our 4 year old can drive it unassisted. The rubber tires make it a little better suited for grass, dirt, and moderate terrain.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 4WD makes it suitable for driving on all types of terrains and climbing steep hills|👉 Remote control loses signal when not in your line of sight|
+| 👉 Battery stays charged for a good while|👉 Assembly booklet is difficult to follow|
+| 👉 Almost fully assembled out of the box|👉 Hood latch isn't durable|
+
+---
+
 ### Read More 👇
 
 ➡️[Sopbost 12V 10Ah Ride-On Utv Remote](/reviews/sopbost-12v-10ah-ride-on-utv-remote)
@@ -352,6 +598,26 @@ The Mercedes Benz G63 Car for Kids is the perfect miniature car for your little 
 ### Our Rating For This Product
 
 ⭐⭐⭐⭐⭐
+
+### Technical Details
+
+| Product Dimensions           | 40 x 21 x 22 inches |
+|------------------------------|---------------------|
+| Item Weight                  | 39 pounds           |
+| Manufacturer recommended age | 3 years and up      |
+| Manufacturer                 | ANPABO              |
+
+### Customers Say about this product
+
+> My 3 year old (and I) love this truck. It’s cute and she fits in perfect despite being the height of a 5 year old.
+
+### Pros and Cons
+
+| ✅ Pros | ❌ Cons |
+|-|-|
+| 👉 Setup is easy and fast|👉 Might get a unit with a missing part if you're unlucky|
+| 👉 Has several safety features to protect your kid including spring suspsensions|👉 Speed is not adjustable|
+| 👉 Parental remote puts you in charge when the situation calls for it|👉 A tad smaller than it should be|
 
 ### Read More 👇
 
@@ -391,41 +657,6 @@ The Costzon Ride on Car is perfect for children who are ready to take their driv
 | 👉 Seats two children: The Land Rover ride-on toy comfortably seats two children, so your little ones can cruise around together. |👉 The car only goes in reverse: One of the biggest complaints about this toy is that it only goes in reverse. So, if your child is driving and wants to turn around or go back up a hill, they're out of luck. |
 | 👉 Manual and remote control options: The car has both manual and remote control options, so your child can drive themselves or you can take control when necessary.|👉 The car is very slow: Another complaint is that the car is very slow. It's not going to win any races against other ride-on toys and can be frustrating for kids who want to go faster. |
 | 👉 Features 2-wheel suspension, treaded tires: The car features 2-wheel suspension and treaded tires for a smooth ride.|👉 The tires are made of cheap plastic and can break easily: This isn't a huge problem if you're careful with the car, but some parents have reported that the tires are made of cheap plastic and can break easily if they hit something too hard or get punctured by a sharp object.|
-
----
-
-## [Anpabo 24V 4Wd Ride On Car Truck](/reviews/anpabo-24v-4wd-ride-on-car-truck/)
-[![Anpabo-24V-4Wd-Ride-On-Car-Truck](<https://images-na.ssl-images-amazon.com/images/I/71j9Q6-p9gL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/ANPABO-Switchable-Spacious-Absorbers-Electric/dp/B0B8HYPXC2/?tag=kidselectricvehicle-20>)[![Anpabo-24V-4Wd-Ride-On-Car-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/ANPABO-Switchable-Spacious-Absorbers-Electric/dp/B0B8HYPXC2/?tag=kidselectricvehicle-20>)
-
-### Product Description 
-
-The ANPABO 24V 4WD Ride on Car Truck w/ Remote Control features a 2WD/4WD switchable system, making it easy for your child to switch between modes. This electric ride on truck also has a 19" capacious seat and 14" large wheelbase to accommodate children over 3 years old and under 4.5 ft.
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-| Brand                 | ANPABO                        |
-|-----------------------|-------------------------------|
-| Material              | Polypropylene, Plastic, Metal |
-| Size                  | 24V 4WD                       |
-| Item Weight           | 58 Pounds                     |
-| Item Dimensions LxWxH | 45 x 31 x 31 inches           |
-| Sub Brand             | ANPABO                        |
-
-### Customers Say about this product
-
-> Love, love it! ❤️
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
 
 ---
 
@@ -632,9 +863,9 @@ Have your kids get their motorcycle license early with this Costzon Kids Ride on
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Battery life is great for the price |👉 The front guard is a bit difficult to install|
+| 👉 Straightforward assembly|👉 Radio's loud and doesn't include the most pleasant playlist|
+| 👉 It's fast and offers a thrilling experience|👉 Its size is disappointingly small when assembled|
 
 ---
 
@@ -667,9 +898,9 @@ The Lil Patrol is a rugged, compact, and sturdy 3-wheeler for kids ages 18 month
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 It can move forward and reverse|👉 Seat has to be unscrewed to charge the battery|
+| 👉 Easy to put together|👉 It's small so toddlers outgrow it fast|
+| 👉 Battery provides hours of fun when fully charged|👉 Siren's volume cannot be adjusted|
 
 ---
 
@@ -702,9 +933,9 @@ The Costzon electric ride-on truck has 2 seats for endless fun, so kids can shar
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Easy-to-follow assembly instructions|👉 Turning radius could be better for easier maneuvering|
+| 👉 Good battery life|👉 Steering column isn't great|
+| 👉 Headlights and engine sound give it a realistic feel|👉 Assembly manual doesn't include pictures|
 
 ---
  
@@ -721,9 +952,10 @@ The VALUE BOX Electric Remote Control Truck is the perfect gift for your kids! W
 
 ### Technical Details
 
-| Brand | VALUE BOX                 |
-|-------|---------------------------|
-| Size  | 37.8 x 24.4 x 19.5 inches |
+| Product Dimensions           | 39 x 21 x 11.5 inches |
+|------------------------------|-----------------------|
+| Manufacturer recommended age | 3 - 5 years           |
+| Manufacturer                 | VALUE BOX             |
 
 ### Customers Say about this product
 
@@ -733,9 +965,9 @@ The VALUE BOX Electric Remote Control Truck is the perfect gift for your kids! W
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Easy to put together|👉 Remote control battery dies quickly|
+| 👉 You can drive your kid using the remote control|👉 The horn and music don't work sometimes|
+| 👉 Drives well on grass and concrete|👉 Seeing as this is a truck road height should be higher|
 
 ---
  
@@ -765,9 +997,9 @@ JOYMOR Ride-on Truck is the perfect toy for children who love playing with cars.
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 All parts connect easily|👉 Annoying start sound|
+| 👉 Good traction on carpet and concrete floors|👉 Struggles to go uphill|
+| 👉 Has forward and reverse gear plus remote|👉 Gets stuck on grassy terrain|
 
 ---
  
@@ -800,9 +1032,9 @@ This Kid Trax Paw Patrol toddler quad electric ride-on toy features your child's
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Assembly takes a few minutes only|👉 Vehicle stops when finger is lifted off the start button|
+| 👉 Easy to use for toddlers|👉 Only moves forward|
+| 👉 Moves at the right speed for your kid to have fun and for you to follow|👉 Low traction on tires|
 
 ---
 
@@ -833,9 +1065,9 @@ The Playskool Bounce and Ride Active Toy Ride-On for Toddlers 12 Months and Up, 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Great for strengthening your toddler's muscles and legs|👉 Unclear instructions|
+| 👉 Perfect for kids that love to jump and bounce|👉 Wheels are difficult to install|
+| 👉 Music and sounds aren't too loud or annoying|👉 Poor packaging|
 
 ---
  
@@ -866,9 +1098,9 @@ The Razor MX400 is a powerful, variable-speed, chain-driven electric dirt bike f
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Decent battery life|👉 Throttle is too basic|
+| 👉 Safety feature kills the throttle when it's applied with the brake|👉 Motorcycle is a bit too fast for kids|
+| 👉 Offers a realistic riding experience|👉 Bumpy riding due to lack of suspension|
 
 ---
 
@@ -901,9 +1133,9 @@ With a spacious seat and safety belt, the u URideon Ride-on Bumper Car is safe, 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Comes with a remote control|👉 Seat belt is too big for small kids|
+| 👉 Lights and music delight kids|👉 A bit too loud and startling for kids|
+| 👉 Easy to control in forward and reverse motion|👉 Remote control doesn't stay synced|
 
 ---
  
@@ -936,9 +1168,9 @@ Little construction workers in training will love this authentically-styled CAT 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Easy to learn how to control and drive|👉 Battery life decreases significantly after a few months|
+| 👉 Moves at the perfect speed for toddlers|👉 Takes a good while to put together|
+| 👉 Lifelike driving experience with forward and reverse motion|👉 Not durable|
 
 ---
 
@@ -971,9 +1203,9 @@ Get your little one ready to ride with this Kidzone 12V 2 Driving Mode Indoor/Ou
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Well-built toy with beautiful lights|👉 Moves at a very slow pace|
+| 👉 Steering wheel makes it feel like  a real car|👉 You lose control of the car via the remote if your kid pushes both joysticks together|
+| 👉 Has a remote control for parental control|👉 Some units come with faulty remote controls|
 
 ---
 
@@ -1006,9 +1238,9 @@ This bumper car is a perfect introduction to the world of kids electric cars. Th
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Remote control is included for added asafety|👉 Some units come with bad batteries|
+| 👉 Lightweight and easy to move|👉 Slow movement|
+| 👉 Comes assembled|👉 Makes a ton of noise which can scare little kids|
 
 ---
 
@@ -1041,9 +1273,9 @@ Get the best experience for your kids with Joywhale 2 Seater UTV! Equipped with 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Easy to put togther thanks to the simple instruction booklet|👉 Doesn't have rubberized wheels|
+| 👉 Good battery life|👉 Steering wheel only turns a short distance|
+| 👉 Great customer service|👉 Controller is cheap and doensn't work well enough|
 
 ---
 
@@ -1076,9 +1308,9 @@ Kids love to pretend they're in the big leagues. With this TOBBI police car, the
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Lights and siren sound like the real thing|👉 Speed is a bit slow|
+| 👉 Gets good traction on different types of surfaces|👉 Big turning radius|
+| 👉 Retains a charge for a decent amount of time|👉 No volume control|
 
 ---
 
@@ -1111,9 +1343,9 @@ Your kids will love the fun and easy to use TEOAYEAH ATV. This battery-powered, 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Sturdy and well-built ATV toy|👉 Only provides about 40 minutes of play time|
+| 👉 Includes extra features like bluetooth and SUB|👉 Poor traction on grass|
+| 👉 Can drive in reverse|👉 Issue with missing parts in some packages|
 
 ---
 
@@ -1146,9 +1378,9 @@ The Costzon Ride on Car is a licensed BMW i8 ride-on car that has 2 motors and r
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Stylish and flashy toy car|👉 Weak motor|
+| 👉 Easy to assemble|👉 Doesn't hold a charge for more than an hour|
+| 👉 Drives well on mowed lawns|👉 Quality of remote control isn't up to par|
 
 ---
 
@@ -1181,9 +1413,9 @@ The Ultimate Go-Kart is the perfect vehicle for any hard-core fan! The adjustabl
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 It can go as fast as 8mph|👉 Low-quality tires|
+| 👉 Parental speed lock lets you limit the speed your kid can drive at|👉 The kart is very loud during movement|
+| 👉 Can be assembled in less than 30 minutes|👉 Kart is heavy and hard to move after assembly|
 
 ---
 
@@ -1213,9 +1445,9 @@ Get your little one on their first 4-wheeler with this battery powered electric 
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Shallow learning curve for toddlers|👉 Has a very low maximum speed|
+| 👉 Has a USB and memory card slot for playing your own music if you don't like the built-in playlist|👉 Doesn't run well on grassy areas|
+| 👉 Easy to operate|👉 Doesn't include a remote control|
 
 ---
 
@@ -1246,9 +1478,9 @@ Take the ride of your life with the Rollplay Electric Train Ride On for Kids! Th
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Lengthy train track completely immerses your kid|👉 Derails on rugs sometimes|
+| 👉 You can choose how long you want the track to be|👉 Battery life is shorter than most parents would like|
+| 👉 The whole thing is easy to assemble|👉 Steam, whistles, and other train sounds aren't loud enough to provide an authentic train ambience|
 
 ---
 
@@ -1280,42 +1512,9 @@ The Mercedes-Benz G63 Car For Kids is a licensed, remote control toy car with tw
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
----
-
-## [Kids Ride On Truck 12V Kids Electric Truck](/Kids-Ride-On-Truck-12V-Kids-Electric-Truck)
-[![Kids-Ride-On-Truck-12V-Kids-Electric-Truck](<https://images-na.ssl-images-amazon.com/images/I/81ZVkfCdh1L._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Electric-Spring-Suspension-Parent-Control/dp/B0B4DM4DPV/?tag=kidselectricvehicle-20>)[![Kids-Ride-On-Truck-12V-Kids-Electric-Truck](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Electric-Spring-Suspension-Parent-Control/dp/B0B4DM4DPV/?tag=kidselectricvehicle-20>)
-
-### Product Description 
-
-Kids love driving around on this 12V Kids Electric Truck! Designed with a 30W dual powerful motors and spring suspension, it gives kids a smooth ride. The truck has passed the ASTM F963 & CPSIA safety standards and quality is guaranteed. It includes 2-point safety belt that keeps children in place and locks when driving, improving safety. Comes with large shock-absorbing plastic tires to prevent skidding.
-
-### Our Rating For This Product
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-| Brand             | CHRUN               |
-|-------------------|---------------------|
-| Material          | Polypropylene, Iron |
-| Size              | 26*39.2*26 in       |
-| Assembly Required | Yes                 |
-
-### Customers Say about this product
-
-> The jeep is awesome! My daughter loves it. The bluetooth connects with no issues and it drives nice. But, it makes very wide turns. There will be no sharp turning and you might need to throw it in reverse to make the turn. But still recommend it
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Has actual doors that can be opened and locked|👉 Vague instructions in the manual|
+| 👉 Roomy seat means your kid will be comfortable while having fun|👉 Windshield is tricky to install|
+| 👉 Remote control gives you the uppermost control you need for your kid's safety|👉 Battery life could be better|
 
 ---
 
@@ -1348,9 +1547,9 @@ We're big kids at heart and know that every kid deserves a ride. This two-seater
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Remote control is shaped like a game controller and is comfortable to use|👉 Screws should be organized better for easier installation|
+| 👉 FM radio has bluetooth, USB, and memory card support|👉 Assembly instructions could be clearer|
+| 👉 Offers three speeds and reverse|👉 Rims pop off easily|
 
 ---
 
@@ -1383,9 +1582,9 @@ This electric ride-on truck by Kidzone is the ultimate way for kids to enjoy the
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 The volume of the bluetooth radio is well balanced|👉 Can be difficult to put together due to it having a lot of parts|
+| 👉 Remote control works perfectly and the jeep responds to it quickly|👉 Hood latch is cheaply made and doesn't work properly|
+| 👉 Drives well on grass and dirt|👉 It's supposed to be a two-seater but it can only accommodate one kid unless your kids are very little|
 
 ---
 
@@ -1418,46 +1617,11 @@ Aspiring young farmers will love the realistic design of this Kidzone Tractor Ri
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Battery is easy to remove|👉 Instruction manual is missing some details needed to assemble this tractor|
+| 👉 Remote control works without a hitch|👉 Seat belt isn't practical|
+| 👉 Climbs small inclines and runs on rough terrains|👉 Tractor jerks when stopped|
 
 ---
-
-## [Sopbost 24V Ride On Utv 2 Seater Ride](/Sopbost-24V-Ride-On-Utv-2-Seater-Ride)
-[![Sopbost-24V-Ride-On-Utv-2-Seater-Ride](<https://images-na.ssl-images-amazon.com/images/I/71xaKbiyExS._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Sopbost-Control-Electric-Motorized-Suspension/dp/B0B9SNC76P/?tag=kidselectricvehicle-20>)[![Sopbost-24V-Ride-On-Utv-2-Seater-Ride](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Sopbost-Control-Electric-Motorized-Suspension/dp/B0B9SNC76P/?tag=kidselectricvehicle-20>)
-
-### Product Description 
-
-
-
-### Our Rating For This Product
-
-
-
-⭐⭐⭐⭐⭐
-
-### Technical Details
-
-
-### Customers Say about this product
-
-> 
-
-
-
-### Pros and Cons
-
-| ✅ Pros | ❌ Cons |
-|-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
-
-
-
----
-
  
 ## [Costzon 12V Kids Motorcycle Licensed Aprilia Electric Motorcycle](/Costzon-12V-Kids-Motorcycle-Licensed-Aprilia-Electric-Motorcycle)
 [![Costzon-12V-Kids-Motorcycle-Licensed-Aprilia-Electric-Motorcycle](<https://images-na.ssl-images-amazon.com/images/I/71vsuyNhrpL._AC_UL600_SR600,400_.jpg>)](<https://www.amazon.com/Costzon-Motorcycle-Licensed-Electric-Suspension/dp/B08G8PGXJN/?tag=kidselectricvehicle-20>)[![Costzon-12V-Kids-Motorcycle-Licensed-Aprilia-Electric-Motorcycle](<https://dabuttonfactory.com/button.png?t=CHECK+AMAZON&f=Noto+Sans-Bold&ts=26&tc=fff&hp=45&vp=20&c=11&bgt=unicolored&bgc=4bd42f>)](<https://www.amazon.com/Costzon-Motorcycle-Licensed-Electric-Suspension/dp/B08G8PGXJN/?tag=kidselectricvehicle-20>)
@@ -1488,9 +1652,9 @@ This Costzon 12V Kids Motorcycle is designed for young learners and beginners. T
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Rides fast on grass and dirt and tires have suspension springs for smoother rides|👉 Product isn't durable|
+| 👉 MP3 player has a nice playlist and lets you play your own songs via memory card or USB|👉 Top speed is too slow for bigger kids|
+| 👉 Battery lasts a good while after a full charge|👉 Assembly process isn't clearly explained in the manual|
 
 ---
 
@@ -1522,8 +1686,8 @@ If your little one is a fan of the Chevy Trail Boss, they’ll love this Kidzone
 
 | ✅ Pros | ❌ Cons |
 |-|-|
-| 👉 |👉 |
-| 👉 |👉 |
-| 👉 |👉 |
+| 👉 Decent bluetooth radio|👉 Wheels develop scratches on hardwood floors|
+| 👉 Long battery life|👉 Remote control is made of cheap plastic|
+| 👉 Remote control works well|👉 Would love to see better speeds on this thing|
 
 ---
