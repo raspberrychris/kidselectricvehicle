@@ -4,13 +4,6 @@ description: >-
   We review the best Kids Electric Vehicles so you can choose the best ones for
   your little ones!
 ---
-{{< lead >}}
-We have checked out all of the the best Kids Electric Vehicles so you can choose the best ones for your little ones.
-{{< /lead >}}
-
-<div class="c-card c-card--clickable"><div class="c-card__preview"><p class="u-hide-when-loaded">No preview available</p></div><div class="c-card__content"><div class="c-card__heading"><div class="c-card__icon "><cc-icon name="mdi:question_mark" class="u-hide-when-loaded"></cc-icon></div><div class="c-card__heading-content"><p class="c-card__text ">Unknown Shortcode</p><p class="c-card__subtext">lead</p></div></div></div></div>
-
-<img src="data:image/gif;base64,R0lGODlhAQABAPABAP///wAAACH5BAEKAAAALAAAAAABAAEAAAICRAEAOw==" width="15" title="Click and drag to move" height="15" role="presentation" draggable="true" />
 
 Hi welcome to [Kids Electric Vehicle](https://kidselectricvehicle.com) 🏎 🚜 🏍.. This site was started by Chris in 2022 to showcase some of the best kids electric cars and vehicles that you can get your little ones.
 
